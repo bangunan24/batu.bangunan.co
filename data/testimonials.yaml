@@ -1,0 +1,53 @@
+testimonials:
+  - avatar: /images/admin/avatar1.png
+    name: Joko
+    message: >-
+      Saya membeli batu kali dari batu.bangunan.co untuk proyek rumah saya, dan
+      hasilnya sangat memuaskan. Kualitas batu unggul dan proses pengirimannya
+      tepat.
+    response: >-
+      Terima kasih atas kepercayaan Anda! Kami senang dapat menyediakan batu
+      berkualitas untuk proyek rumah Anda.
+    rating: 4
+  - avatar: /images/admin/avatar2.png
+    name: Mira
+    message: >-
+      Saya sangat terbantu oleh batu.bangunan.co dalam memilih jenis batu yang
+      cocok untuk proyek saya. Batu yang saya dapatkan bagus dan cocok dengan
+      keperluan saya.
+    response: >-
+      Kami sangat menghargai ulasan Anda! Senang mendengar Anda puas dengan
+      produk kami.
+    rating: 5
+  - avatar: /images/admin/avatar3.png
+    name: Budi
+    message: >-
+      Batu dari batu.bangunan.co sangat cocok untuk proyek perumahan saya.
+      Pembelian dan pengiriman tepat waktu dan tersedia pilihan pembayaran COD.
+    response: Senang mendengar Anda puas dengan layanan dan produk kami. Terima kasih!
+    rating: 4
+  - avatar: /images/admin/avatar4.png
+    name: Samsul
+    message: >-
+      Batu pondasi dari batu.bangunan.co sangat memuaskan. Mutunya luar biasa
+      dan sesuai untuk proyek konstruksi bangunan saya.
+    response: >-
+      Senang mendengar Anda puas dengan produk kami. Terima kasih atas
+      kepercayaannya!
+    rating: 5
+  - avatar: /images/admin/avatar5.png
+    name: Lina
+    message: >-
+      Saya sangat puas dengan pelayanan batu.bangunan.co. Material batu yang
+      saya beli bermutu tinggi dan sesuai dengan harapan saya.
+    response: Terima kasih atas ulasannya! Kami sangat menghargai kepercayaan Anda.
+    rating: 4
+  - avatar: /images/admin/avatar6.png
+    name: Agus
+    message: >-
+      Batu dari batu.bangunan.co cocok dengan renovasi rumah yang sedang saya
+      kerjakan. Pengirimannya tepat waktu dan berjalan dengan aman.
+    response: >-
+      Kami senang mendengar bahwa Anda puas dengan produk batu kami. Terima
+      kasih atas ulasannya!
+    rating: 5
