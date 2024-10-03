@@ -1,8 +1,8 @@
 ---
-title: "Jual Batu Split Di Rumpin Bogor [1/2-2/3-3/5]"
-date: "2022-12-29"
-categories: 
-  - "tempat"
+title: 'Jual Batu Split Di Rumpin Bogor [1/2-2/3-3/5]'
+date: '2024-10-03'
+categories:
+  - tempat
 ---
 
 **Jual Batu Split Di Rumpin Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwasanya konstruksi beton merupakan bagian konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

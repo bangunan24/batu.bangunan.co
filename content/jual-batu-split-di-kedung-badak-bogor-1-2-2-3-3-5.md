@@ -1,8 +1,8 @@
 ---
-title: "Jual Batu Split Di Kedung Badak Bogor [1/2-2/3-3/5]"
-date: "2023-01-02"
-categories: 
-  - "tempat"
+title: 'Jual Batu Split Di Kedung Badak Bogor [1/2-2/3-3/5]'
+date: '2024-10-03'
+categories:
+  - tempat
 ---
 
 **Jual Batu Split Di Kedung Badak Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton merupakan komponen konstruksi yang patut ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu ataupun kayu cuma sedikit penerapan beton didalamnya.

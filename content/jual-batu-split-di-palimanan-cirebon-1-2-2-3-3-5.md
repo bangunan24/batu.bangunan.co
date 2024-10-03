@@ -1,8 +1,8 @@
 ---
-title: "Jual Batu Split Di Palimanan Cirebon [1/2-2/3-3/5]"
-date: "2023-01-02"
-categories: 
-  - "tempat"
+title: 'Jual Batu Split Di Palimanan Cirebon [1/2-2/3-3/5]'
+date: '2024-10-03'
+categories:
+  - tempat
 ---
 
 **Jual Batu Split Di Palimanan Cirebon \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton yakni bagian konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.
