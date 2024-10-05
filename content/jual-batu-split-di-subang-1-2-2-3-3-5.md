@@ -1,8 +1,8 @@
 ---
-title: "Jual Batu Split Di Subang [1/2-2/3-3/5]"
-date: "2023-01-04"
-categories: 
-  - "tempat"
+title: 'Jual Batu Split Di Subang [1/2-2/3-3/5]'
+date: '2024-10-03'
+categories:
+  - tempat
 ---
 
 **Jual Batu Split Di Subang \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwasanya konstruksi beton yakni komponen konstruksi yang patut ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

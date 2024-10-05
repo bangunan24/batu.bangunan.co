@@ -1,8 +1,8 @@
 ---
-title: "Jual Batu Split Di Kebon Manggis Jakarta [1/2-2/3-3/5]"
-date: "2023-01-02"
-categories: 
-  - "tempat"
+title: 'Jual Batu Split Di Kebon Manggis Jakarta [1/2-2/3-3/5]'
+date: '2024-10-03'
+categories:
+  - tempat
 ---
 
 **Jual Batu Split Di Kebon Manggis Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton yakni komponen konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu cuma sedikit penerapan beton didalamnya.
