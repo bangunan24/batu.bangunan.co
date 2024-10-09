@@ -1,8 +1,9 @@
 ---
-title: 'Jual Batu Split Di Rumpin Bogor [1/2-2/3-3/5]'
-date: '2024-10-03'
-categories:
-  - tempat
+title: "Jual Batu Split Di Rumpin Bogor [1/2-2/3-3/5]"
+date: "2022-12-29"
+categories: 
+  - "tempat"
+description: "Jual Batu Split Di Rumpin Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih tanpa..."
 ---
 
 **Jual Batu Split Di Rumpin Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwasanya konstruksi beton merupakan bagian konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.
@@ -62,3 +63,4 @@ Selanjutnya adalah batu split ukuran 3/5 jenis batu split ini tidak banyak yang 
 Kalau anda sedang mencari leveransir Jual Batu Split Di Rumpin Bogor \[1/2-2/3-3/5\] yang amanah, anda sudah tepat berada di website ini karena kami yakni supplier khusus batu split dari tambang langsung. Jadi dengan anda mengorder batu split dari kami maka anda akan memperoleh mutu batu split yang terbaik yang dipecah dg mesin pemecah batu atau disebut dengan mesin crusher. Macam batu nya juga merupakan batu andesit, batu berwarna hitam keabu-abuan, fisiknya keras serta runcing. Selain dari mutu batu yang terbaik, kami juga menjamin isi truknya full tanpa dibangun, sebab di tambang sendiri muat batu split menerapkan alat berat semisal beko sehingga muatan lebih padat berisi.
 
 Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih tanpa ada campuran Lumpur maupun kotoran lainnya. Selain dari itu harga yang kami berikan juga ialah harga yang relatif terjangkau sudah termasuk ongkos pengiriman dan bongkar muat. Sehingga Anda tdk perlu repot lagi dengan budget lain. Kalau anda ingin order dari kami caranya cukup mudah, anda hanya tinggal memberikan kepada kami data tempat domisili yang lengkap dan nomor HP aktif. Kemudian kami akan langsung mengirim pesanan batu split ke lokasi anda pada ke esokan harinya. Selain dari itu sistem pembayaran yang kami pakai pun yaitu sistem pembayaran yang aman. Anda tidak perlu khawatir rugi atau tertipu, karena kami menggunakan metode pembayaran COD, adalah metode pembayaran setelah material terkirim atau Anda membayarnya dikala material sampai di lokasi proyek anda, sungguh-sungguh aman tidak beresiko untuk anda. Silakan hubungi kami via telepon yang ada pada laman ini. Anda dapat telepon ataupun WhatsApp kepada kami kapan pun. Jazaakallohu khairan
+**Ref by:** [Batu Split Rumpin Bogor [1/2-2/3-3/5]](https://id.wikipedia.org/wiki/Batu)
