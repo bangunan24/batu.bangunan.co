@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Mekarwangi Bogor [1/2-2/3-3/5]"
-date: "2023-01-01"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Mekarwangi Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih ta..."
+title: 'Jual Batu Split Di Mekarwangi Bogor [1/2-2/3-3/5]'
+date: '2024-10-09'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Mekarwangi Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih
+  ta...
 ---
 
 **Jual Batu Split Di Mekarwangi Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwasanya konstruksi beton yakni bagian konstruksi yang wajib ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu cuma sedikit pemakaian beton didalamnya.

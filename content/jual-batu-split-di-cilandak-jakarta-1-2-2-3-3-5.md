@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cilandak Jakarta [1/2-2/3-3/5]"
-date: "2023-01-01"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cilandak Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sebagaimana dengan ukruan yang dipesan be..."
+title: 'Jual Batu Split Di Cilandak Jakarta [1/2-2/3-3/5]'
+date: '2024-10-09'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cilandak Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya sebagaimana dengan ukruan yang dipesan
+  be...
 ---
 
 **Jual Batu Split Di Cilandak Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwa konstruksi beton yaitu komponen konstruksi yang patut ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit penerapan beton didalamnya.

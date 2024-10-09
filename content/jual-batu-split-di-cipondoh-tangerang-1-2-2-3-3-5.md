@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cipondoh Tangerang [1/2-2/3-3/5]"
-date: "2023-01-01"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cipondoh Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sesuai dg ukruan yang diorder bersih ta..."
+title: 'Jual Batu Split Di Cipondoh Tangerang [1/2-2/3-3/5]'
+date: '2024-10-09'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cipondoh Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya ialah tidak campur ukurannya sesuai dg ukruan yang diorder
+  bersih ta...
 ---
 
 **Jual Batu Split Di Cipondoh Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton merupakan komponen konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% mengaplikasikan material bambu ataupun kayu cuma sedikit penggunaan beton didalamnya.

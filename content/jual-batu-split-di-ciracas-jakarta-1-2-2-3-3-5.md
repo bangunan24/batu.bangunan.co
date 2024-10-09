@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Ciracas Jakarta [1/2-2/3-3/5]"
-date: "2022-12-31"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Ciracas Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tidak campur ukurannya sebagaimana dg ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Ciracas Jakarta [1/2-2/3-3/5]'
+date: '2024-10-09'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Ciracas Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tidak campur ukurannya sebagaimana dg ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Ciracas Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton yakni bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

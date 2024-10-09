@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Rawa Buaya Jakarta [1/2-2/3-3/5]"
-date: "2022-12-30"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Rawa Buaya Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sebagaimana dengan ukruan yang diorde..."
+title: 'Jual Batu Split Di Rawa Buaya Jakarta [1/2-2/3-3/5]'
+date: '2024-10-09'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Rawa Buaya Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tdk campur ukurannya sebagaimana dengan ukruan yang
+  diorde...
 ---
 
 **Jual Batu Split Di Rawa Buaya Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton merupakan komponen konstruksi yang mesti ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

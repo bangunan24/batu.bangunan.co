@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kebagusan Jakarta [1/2-2/3-3/5]"
-date: "2023-01-04"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kebagusan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sebagaimana dg ukruan yang diorder bers..."
+title: 'Jual Batu Split Di Kebagusan Jakarta [1/2-2/3-3/5]'
+date: '2024-10-09'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kebagusan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya sebagaimana dg ukruan yang diorder
+  bers...
 ---
 
 **Jual Batu Split Di Kebagusan Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwa konstruksi beton merupakan bagian konstruksi yang harus ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

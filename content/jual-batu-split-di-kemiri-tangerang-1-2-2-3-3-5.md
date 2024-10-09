@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kemiri Tangerang [1/2-2/3-3/5]"
-date: "2022-12-29"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kemiri Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sebagaimana dg ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Kemiri Tangerang [1/2-2/3-3/5]'
+date: '2024-10-09'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kemiri Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya sebagaimana dg ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Kemiri Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton ialah bagian konstruksi yang mesti ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.
