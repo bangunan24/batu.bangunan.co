@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cikampek Karawang [1/2-2/3-3/5]"
-date: "2024-02-03"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cikampek Karawang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang dipesan be..."
+title: 'Jual Batu Split Di Cikampek Karawang [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cikampek Karawang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang dipesan
+  be...
 ---
 
 **Jual Batu Split Di Cikampek Karawang \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwa konstruksi beton ialah bagian konstruksi yang patut ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% mengaplikasikan material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

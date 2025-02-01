@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kalibaru Jakarta [1/2-2/3-3/5]"
-date: "2024-02-09"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kalibaru Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa ada..."
+title: 'Jual Batu Split Di Kalibaru Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kalibaru Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa
+  ada...
 ---
 
 **Jual Batu Split Di Kalibaru Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton merupakan komponen konstruksi yang harus ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Rawasari Jakarta [1/2-2/3-3/5]"
-date: "2024-02-20"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Rawasari Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sesuai dengan ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Rawasari Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Rawasari Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya sesuai dengan ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Rawasari Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton adalah komponen konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

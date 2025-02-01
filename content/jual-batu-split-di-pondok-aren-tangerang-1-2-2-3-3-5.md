@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pondok Aren Tangerang [1/2-2/3-3/5]"
-date: "2024-02-22"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pondok Aren Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sesuai dg ukruan yang diorder bersi..."
+title: 'Jual Batu Split Di Pondok Aren Tangerang [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pondok Aren Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tidak campur ukurannya sesuai dg ukruan yang diorder
+  bersi...
 ---
 
 **Jual Batu Split Di Pondok Aren Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwasanya konstruksi beton yaitu komponen konstruksi yang patut ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

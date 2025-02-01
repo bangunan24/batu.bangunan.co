@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Selong Jakarta [1/2-2/3-3/5]"
-date: "2024-02-15"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Selong Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sesuai dg ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Selong Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Selong Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya sesuai dg ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Selong Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton merupakan bagian konstruksi yang sepatutnya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

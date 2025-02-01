@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cibatu Purwakarta [1/2-2/3-3/5]"
-date: "2024-02-29"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cibatu Purwakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sebagaimana dg ukruan yang dipesan bersi..."
+title: 'Jual Batu Split Di Cibatu Purwakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cibatu Purwakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya sebagaimana dg ukruan yang dipesan
+  bersi...
 ---
 
 **Jual Batu Split Di Cibatu Purwakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton ialah komponen konstruksi yang mesti ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

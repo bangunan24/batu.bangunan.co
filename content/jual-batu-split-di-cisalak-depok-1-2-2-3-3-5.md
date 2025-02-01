@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cisalak Depok [1/2-2/3-3/5]"
-date: "2024-02-21"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cisalak Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Cisalak Depok [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cisalak Depok [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Cisalak Depok \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton ialah bagian konstruksi yang harus ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu cuma sedikit pemakaian beton didalamnya.

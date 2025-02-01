@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Telukjambe Karawang [1/2-2/3-3/5]"
-date: "2024-02-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Telukjambe Karawang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa..."
+title: 'Jual Batu Split Di Telukjambe Karawang [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Telukjambe Karawang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang dipesan bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Telukjambe Karawang \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwa konstruksi beton ialah bagian konstruksi yang patut ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

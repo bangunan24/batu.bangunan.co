@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Sunter Jakarta [1/2-2/3-3/5]"
-date: "2024-02-16"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Sunter Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang dipesan bersih ta..."
+title: 'Jual Batu Split Di Sunter Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Sunter Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang dipesan bersih
+  ta...
 ---
 
 **Jual Batu Split Di Sunter Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton yakni bagian konstruksi yang patut ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.

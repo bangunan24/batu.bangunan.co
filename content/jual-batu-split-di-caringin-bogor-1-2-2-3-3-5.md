@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Caringin Bogor [1/2-2/3-3/5]"
-date: "2024-02-06"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Caringin Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya pas dg ukruan yang diorder bersih tanpa ad..."
+title: 'Jual Batu Split Di Caringin Bogor [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Caringin Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya pas dg ukruan yang diorder bersih tanpa
+  ad...
 ---
 
 **Jual Batu Split Di Caringin Bogor \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton yaitu bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

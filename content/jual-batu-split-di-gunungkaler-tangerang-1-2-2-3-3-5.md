@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Gunungkaler Tangerang [1/2-2/3-3/5]"
-date: "2024-02-19"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Gunungkaler Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang diorder bersih tanp..."
+title: 'Jual Batu Split Di Gunungkaler Tangerang [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Gunungkaler Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang diorder bersih
+  tanp...
 ---
 
 **Jual Batu Split Di Gunungkaler Tangerang \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwasanya konstruksi beton merupakan komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu hanya sedikit pengaplikasian beton didalamnya.

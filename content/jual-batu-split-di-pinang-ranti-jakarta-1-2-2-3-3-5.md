@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pinang Ranti Jakarta [1/2-2/3-3/5]"
-date: "2024-02-04"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pinang Ranti Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya pas dengan ukruan yang dipesan bers..."
+title: 'Jual Batu Split Di Pinang Ranti Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pinang Ranti Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tdk campur ukurannya pas dengan ukruan yang dipesan
+  bers...
 ---
 
 **Jual Batu Split Di Pinang Ranti Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton merupakan komponen konstruksi yang mesti ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

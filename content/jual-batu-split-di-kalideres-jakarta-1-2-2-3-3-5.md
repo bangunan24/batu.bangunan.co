@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kalideres Jakarta [1/2-2/3-3/5]"
-date: "2024-02-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kalideres Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya pas dengan ukruan yang dipesan bersih tanp..."
+title: 'Jual Batu Split Di Kalideres Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kalideres Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya pas dengan ukruan yang dipesan bersih
+  tanp...
 ---
 
 **Jual Batu Split Di Kalideres Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton merupakan bagian konstruksi yang patut ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

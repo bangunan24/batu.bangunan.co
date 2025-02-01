@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Jatiasih Bekasi [1/2-2/3-3/5]"
-date: "2024-02-12"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Jatiasih Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih ta..."
+title: 'Jual Batu Split Di Jatiasih Bekasi [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Jatiasih Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih
+  ta...
 ---
 
 **Jual Batu Split Di Jatiasih Bekasi \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton ialah bagian konstruksi yang harus ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu cuma sedikit pemakaian beton didalamnya.

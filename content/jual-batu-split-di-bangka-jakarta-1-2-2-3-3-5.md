@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Bangka Jakarta [1/2-2/3-3/5]"
-date: "2024-02-12"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Bangka Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya pas dg ukruan yang dipesan bersih tanpa..."
+title: 'Jual Batu Split Di Bangka Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Bangka Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya pas dg ukruan yang dipesan bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Bangka Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwasanya konstruksi beton yakni bagian konstruksi yang harus ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

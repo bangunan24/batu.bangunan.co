@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Gunung Sindur [1/2-2/3-3/5]"
-date: "2024-02-19"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Gunung Sindur [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa ada ca..."
+title: 'Jual Batu Split Di Gunung Sindur [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Gunung Sindur [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa
+  ada ca...
 ---
 
 **Jual Batu Split Di Gunung Sindur \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton adalah komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

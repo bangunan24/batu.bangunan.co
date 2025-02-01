@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cikoko Jakarta [1/2-2/3-3/5]"
-date: "2024-02-29"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cikoko Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya sesuai dg ukruan yang diorder bersih tanpa ad..."
+title: 'Jual Batu Split Di Cikoko Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cikoko Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tdk campur ukurannya sesuai dg ukruan yang diorder bersih tanpa
+  ad...
 ---
 
 **Jual Batu Split Di Cikoko Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton yaitu bagian konstruksi yang patut ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

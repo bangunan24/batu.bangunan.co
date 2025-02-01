@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Krukut Jakarta [1/2-2/3-3/5]"
-date: "2024-02-08"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Krukut Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih tan..."
+title: 'Jual Batu Split Di Krukut Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Krukut Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih
+  tan...
 ---
 
 **Jual Batu Split Di Krukut Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwa konstruksi beton adalah komponen konstruksi yang patut ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Jayakerta Karawang [1/2-2/3-3/5]"
-date: "2024-02-08"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Jayakerta Karawang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya pas dengan ukruan yang dipesan bersih tan..."
+title: 'Jual Batu Split Di Jayakerta Karawang [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Jayakerta Karawang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya ialah tdk campur ukurannya pas dengan ukruan yang dipesan
+  bersih tan...
 ---
 
 **Jual Batu Split Di Jayakerta Karawang \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwasanya konstruksi beton merupakan komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

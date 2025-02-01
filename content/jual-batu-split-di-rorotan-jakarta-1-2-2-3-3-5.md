@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Rorotan Jakarta [1/2-2/3-3/5]"
-date: "2024-02-12"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Rorotan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya sebagaimana dg ukruan yang diorder bersih ta..."
+title: 'Jual Batu Split Di Rorotan Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Rorotan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tdk campur ukurannya sebagaimana dg ukruan yang diorder bersih
+  ta...
 ---
 
 **Jual Batu Split Di Rorotan Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton adalah komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu ataupun kayu hanya sedikit penerapan beton didalamnya.

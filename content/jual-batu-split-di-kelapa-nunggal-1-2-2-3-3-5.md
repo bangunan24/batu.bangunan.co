@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kelapa Nunggal [1/2-2/3-3/5]"
-date: "2024-02-17"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kelapa Nunggal [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya pas dengan ukruan yang dipesan bersih t..."
+title: 'Jual Batu Split Di Kelapa Nunggal [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kelapa Nunggal [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya pas dengan ukruan yang dipesan
+  bersih t...
 ---
 
 **Jual Batu Split Di Kelapa Nunggal \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton ialah komponen konstruksi yang mesti ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.

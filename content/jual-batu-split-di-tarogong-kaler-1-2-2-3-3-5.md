@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Tarogong Kaler [1/2-2/3-3/5]"
-date: "2024-02-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Tarogong Kaler [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sebagaimana dg ukruan yang diorder bersih t..."
+title: 'Jual Batu Split Di Tarogong Kaler [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Tarogong Kaler [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya sebagaimana dg ukruan yang diorder
+  bersih t...
 ---
 
 **Jual Batu Split Di Tarogong Kaler \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwasanya konstruksi beton adalah komponen konstruksi yang sepatutnya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu ataupun kayu cuma sedikit penerapan beton didalamnya.

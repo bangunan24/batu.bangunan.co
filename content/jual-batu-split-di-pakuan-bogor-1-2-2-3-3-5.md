@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pakuan Bogor [1/2-2/3-3/5]"
-date: "2024-02-18"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pakuan Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Pakuan Bogor [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pakuan Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Pakuan Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwa konstruksi beton yaitu bagian konstruksi yang mesti ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

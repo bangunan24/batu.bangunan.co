@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Sukmajaya Depok [1/2-2/3-3/5]"
-date: "2024-02-25"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Sukmajaya Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sebagaimana dg ukruan yang diorder bersih t..."
+title: 'Jual Batu Split Di Sukmajaya Depok [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Sukmajaya Depok [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya sebagaimana dg ukruan yang diorder bersih
+  t...
 ---
 
 **Jual Batu Split Di Sukmajaya Depok \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton yaitu bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu hanya sedikit penerapan beton didalamnya.

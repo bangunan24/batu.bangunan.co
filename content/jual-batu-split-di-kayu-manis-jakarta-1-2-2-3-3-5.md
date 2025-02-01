@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kayu Manis Jakarta [1/2-2/3-3/5]"
-date: "2024-02-17"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kayu Manis Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya pas dengan ukruan yang dipesan bersih t..."
+title: 'Jual Batu Split Di Kayu Manis Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kayu Manis Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya ialah tidak campur ukurannya pas dengan ukruan yang dipesan
+  bersih t...
 ---
 
 **Jual Batu Split Di Kayu Manis Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton yaitu komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Wijaya Kusuma Jakarta [1/2-2/3-3/5]"
-date: "2024-02-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Wijaya Kusuma Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang diorder bersih tanp..."
+title: 'Jual Batu Split Di Wijaya Kusuma Jakarta [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Wijaya Kusuma Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang diorder bersih
+  tanp...
 ---
 
 **Jual Batu Split Di Wijaya Kusuma Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwa konstruksi beton yakni komponen konstruksi yang patut ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu ataupun kayu hanya sedikit penerapan beton didalamnya.

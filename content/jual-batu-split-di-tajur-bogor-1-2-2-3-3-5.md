@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Tajur Bogor [1/2-2/3-3/5]"
-date: "2024-02-22"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Tajur Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya pas dengan ukruan yang dipesan bersih tanpa a..."
+title: 'Jual Batu Split Di Tajur Bogor [1/2-2/3-3/5]'
+date: '2025-02-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Tajur Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya pas dengan ukruan yang dipesan bersih
+  tanpa a...
 ---
 
 **Jual Batu Split Di Tajur Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton ialah bagian konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu ataupun kayu hanya sedikit penerapan beton didalamnya.
