@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cisarua Bogor [1/2-2/3-3/5]"
-date: "2024-03-31"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cisarua Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sesuai dengan ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Cisarua Bogor [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cisarua Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tdk campur ukurannya sesuai dengan ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Cisarua Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton merupakan komponen konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

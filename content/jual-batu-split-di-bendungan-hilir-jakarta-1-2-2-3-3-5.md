@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Bendungan Hilir Jakarta [1/2-2/3-3/5]"
-date: "2024-03-26"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Bendungan Hilir Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya pas dg ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Bendungan Hilir Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Bendungan Hilir Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tidak campur ukurannya pas dg ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Bendungan Hilir Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton yakni bagian konstruksi yang patut ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Jatinegara Jakarta [1/2-2/3-3/5]"
-date: "2024-03-08"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Jatinegara Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tanp..."
+title: 'Jual Batu Split Di Jatinegara Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Jatinegara Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya sesuai dg ukruan yang dipesan bersih
+  tanp...
 ---
 
 **Jual Batu Split Di Jatinegara Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton yakni komponen konstruksi yang patut ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

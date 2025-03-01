@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Petogogan Jakarta [1/2-2/3-3/5]"
-date: "2024-03-15"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Petogogan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya sebagaimana dengan ukruan yang diorder ber..."
+title: 'Jual Batu Split Di Petogogan Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Petogogan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tdk campur ukurannya sebagaimana dengan ukruan yang diorder
+  ber...
 ---
 
 **Jual Batu Split Di Petogogan Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwa konstruksi beton ialah komponen konstruksi yang patut ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu cuma sedikit penerapan beton didalamnya.

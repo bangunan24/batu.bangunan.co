@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Sukadamai Bogor [1/2-2/3-3/5]"
-date: "2024-03-19"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Sukadamai Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya pas dengan ukruan yang dipesan bersih tanp..."
+title: 'Jual Batu Split Di Sukadamai Bogor [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Sukadamai Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya pas dengan ukruan yang dipesan bersih
+  tanp...
 ---
 
 **Jual Batu Split Di Sukadamai Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwa konstruksi beton merupakan komponen konstruksi yang patut ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

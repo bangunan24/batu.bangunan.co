@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kayumanis Bogor [1/2-2/3-3/5]"
-date: "2024-03-08"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kayumanis Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya pas dg ukruan yang dipesan bersih tanpa a..."
+title: 'Jual Batu Split Di Kayumanis Bogor [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kayumanis Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya pas dg ukruan yang dipesan bersih tanpa
+  a...
 ---
 
 **Jual Batu Split Di Kayumanis Bogor \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwasanya konstruksi beton adalah komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menggunakan material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

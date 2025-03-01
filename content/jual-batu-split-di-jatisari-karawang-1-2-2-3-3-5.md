@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Jatisari Karawang [1/2-2/3-3/5]"
-date: "2024-03-15"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Jatisari Karawang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang diorder ber..."
+title: 'Jual Batu Split Di Jatisari Karawang [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Jatisari Karawang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang diorder
+  ber...
 ---
 
 **Jual Batu Split Di Jatisari Karawang \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton yakni bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu hanya sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di PetojoSelatan Jakarta [1/2-2/3-3/5]"
-date: "2024-03-07"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di PetojoSelatan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang diorde..."
+title: 'Jual Batu Split Di PetojoSelatan Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di PetojoSelatan Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang
+  diorde...
 ---
 
 **Jual Batu Split Di PetojoSelatan Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton merupakan bagian konstruksi yang patut ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

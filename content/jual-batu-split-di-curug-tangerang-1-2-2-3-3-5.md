@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Curug Tangerang [1/2-2/3-3/5]"
-date: "2024-03-11"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Curug Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tidak campur ukurannya sebagaimana dengan ukruan yang diorder ber..."
+title: 'Jual Batu Split Di Curug Tangerang [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Curug Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tidak campur ukurannya sebagaimana dengan ukruan yang diorder
+  ber...
 ---
 
 **Jual Batu Split Di Curug Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwasanya konstruksi beton ialah komponen konstruksi yang wajib ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

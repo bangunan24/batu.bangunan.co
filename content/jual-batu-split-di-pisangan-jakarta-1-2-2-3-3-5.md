@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pisangan Jakarta [1/2-2/3-3/5]"
-date: "2024-03-29"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pisangan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tidak campur ukurannya sesuai dg ukruan yang dipesan bersih tanp..."
+title: 'Jual Batu Split Di Pisangan Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pisangan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tidak campur ukurannya sesuai dg ukruan yang dipesan bersih
+  tanp...
 ---
 
 **Jual Batu Split Di Pisangan Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton yakni komponen konstruksi yang wajib ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

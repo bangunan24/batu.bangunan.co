@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Situ Gede Bogor [1/2-2/3-3/5]"
-date: "2024-03-22"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Situ Gede Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sebagaimana dengan ukruan yang dipesan bers..."
+title: 'Jual Batu Split Di Situ Gede Bogor [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Situ Gede Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya sebagaimana dengan ukruan yang dipesan
+  bers...
 ---
 
 **Jual Batu Split Di Situ Gede Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwa konstruksi beton adalah bagian konstruksi yang semestinya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Sukaresmi Bogor [1/2-2/3-3/5]"
-date: "2024-03-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Sukaresmi Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang diorder bersi..."
+title: 'Jual Batu Split Di Sukaresmi Bogor [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Sukaresmi Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang diorder
+  bersi...
 ---
 
 **Jual Batu Split Di Sukaresmi Bogor \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwasanya konstruksi beton merupakan bagian konstruksi yang patut ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

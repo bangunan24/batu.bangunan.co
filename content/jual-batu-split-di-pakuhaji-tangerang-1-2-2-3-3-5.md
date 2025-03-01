@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pakuhaji Tangerang [1/2-2/3-3/5]"
-date: "2024-03-27"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pakuhaji Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sebagaimana dg ukruan yang dipesan ber..."
+title: 'Jual Batu Split Di Pakuhaji Tangerang [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pakuhaji Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tidak campur ukurannya sebagaimana dg ukruan yang
+  dipesan ber...
 ---
 
 **Jual Batu Split Di Pakuhaji Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton ialah bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Ciwaringin Bogor [1/2-2/3-3/5]"
-date: "2024-03-30"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Ciwaringin Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Ciwaringin Bogor [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Ciwaringin Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Ciwaringin Bogor \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton adalah komponen konstruksi yang sepatutnya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit penerapan beton didalamnya.

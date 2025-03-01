@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pondok Labu Jakarta [1/2-2/3-3/5]"
-date: "2024-03-12"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pondok Labu Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang dipesan bers..."
+title: 'Jual Batu Split Di Pondok Labu Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pondok Labu Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang dipesan
+  bers...
 ---
 
 **Jual Batu Split Di Pondok Labu Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton yaitu bagian konstruksi yang wajib ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

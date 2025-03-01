@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kwitang Jakarta [1/2-2/3-3/5]"
-date: "2024-03-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kwitang Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa a..."
+title: 'Jual Batu Split Di Kwitang Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kwitang Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa
+  a...
 ---
 
 **Jual Batu Split Di Kwitang Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton ialah bagian konstruksi yang mesti ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

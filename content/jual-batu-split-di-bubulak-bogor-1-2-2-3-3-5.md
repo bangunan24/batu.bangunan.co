@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Bubulak Bogor [1/2-2/3-3/5]"
-date: "2024-03-11"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Bubulak Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang diorder bersi..."
+title: 'Jual Batu Split Di Bubulak Bogor [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Bubulak Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang diorder
+  bersi...
 ---
 
 **Jual Batu Split Di Bubulak Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwasanya konstruksi beton merupakan komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

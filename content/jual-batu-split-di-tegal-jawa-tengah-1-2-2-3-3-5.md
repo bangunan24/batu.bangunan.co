@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Tegal Jawa Tengah [1/2-2/3-3/5]"
-date: "2024-03-30"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Tegal Jawa Tengah [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sesuai dg ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Tegal Jawa Tengah [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Tegal Jawa Tengah [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sesuai dg ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Tegal Jawa Tengah \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton ialah bagian konstruksi yang patut ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

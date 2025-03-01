@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Sindang Jaya Tangerang [1/2-2/3-3/5]"
-date: "2024-03-23"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Sindang Jaya Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang diorder bersih tan..."
+title: 'Jual Batu Split Di Sindang Jaya Tangerang [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Sindang Jaya Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang diorder bersih
+  tan...
 ---
 
 **Jual Batu Split Di Sindang Jaya Tangerang \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton ialah bagian konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

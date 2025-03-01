@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Gedong Jakarta [1/2-2/3-3/5]"
-date: "2024-03-25"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Gedong Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa a..."
+title: 'Jual Batu Split Di Gedong Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Gedong Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tdk campur ukurannya pas dg ukruan yang diorder bersih
+  tanpa a...
 ---
 
 **Jual Batu Split Di Gedong Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton yaitu komponen konstruksi yang wajib ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu hanya sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pabaton Bogor [1/2-2/3-3/5]"
-date: "2024-03-12"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pabaton Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya pas dg ukruan yang diorder bersih tanpa ada..."
+title: 'Jual Batu Split Di Pabaton Bogor [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pabaton Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya pas dg ukruan yang diorder bersih tanpa
+  ada...
 ---
 
 **Jual Batu Split Di Pabaton Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwa konstruksi beton adalah bagian konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

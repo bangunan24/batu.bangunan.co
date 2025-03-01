@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Bintaro Jakarta [1/2-2/3-3/5]"
-date: "2024-03-01"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Bintaro Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih tan..."
+title: 'Jual Batu Split Di Bintaro Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Bintaro Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih
+  tan...
 ---
 
 **Jual Batu Split Di Bintaro Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwa konstruksi beton yaitu komponen konstruksi yang mesti ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

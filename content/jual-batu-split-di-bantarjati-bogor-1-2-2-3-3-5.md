@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Bantarjati Bogor [1/2-2/3-3/5]"
-date: "2024-03-18"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Bantarjati Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih t..."
+title: 'Jual Batu Split Di Bantarjati Bogor [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Bantarjati Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih
+  t...
 ---
 
 **Jual Batu Split Di Bantarjati Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwa konstruksi beton merupakan komponen konstruksi yang wajib ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

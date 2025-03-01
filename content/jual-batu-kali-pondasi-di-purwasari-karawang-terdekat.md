@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Kali Pondasi Di Purwasari Karawang [Terdekat]"
-date: "2024-03-16"
-categories: 
-  - "harga"
-description: "Jual Batu Kali Pondasi Di Purwasari Karawang [Terdekat]. Untuk Anda yang ingin mengorder batu pondasi ini dari kami, silakan hubungi kami lewat nomor telepon..."
+title: 'Jual Batu Kali Pondasi Di Purwasari Karawang [Terdekat]'
+date: '2025-03-01'
+categories:
+  - harga
+description: >-
+  Jual Batu Kali Pondasi Di Purwasari Karawang [Terdekat]. Untuk Anda yang ingin
+  mengorder batu pondasi ini dari kami, silakan hubungi kami lewat nomor
+  telepon...
 ---
 
 **Jual Batu Kali Pondasi Di Purwasari Karawang \[Terdekat\]** – Sebagus apapun kontruksi sebuah bangunan baik itu sekala kecil ataupun besar tetap membutuhkan pondasi. Sebab pondasi yakni pijakan dasar yang memastikan kuat dan tidaknya sebuah bangunan berdiri. Bersama itu keberadaan pondasi pada sebuah bangunan ialah penting adanya tidak dapat kita hindari dikala kita berencana membangun sebuah bangunan. Kekuatan sebuah pondasi juga amat ditentukan oleh mutu material yang diterapkan dalam pembuatan pondasi nya. Jika material pondasinya berupa batu kali, tentunya amat ditetapkan oleh mutu dari batu yang diaplikasikan, begitupun lainnya seperti pasir, semen yang digunakan betul-betul menetapkan Mutu nya.

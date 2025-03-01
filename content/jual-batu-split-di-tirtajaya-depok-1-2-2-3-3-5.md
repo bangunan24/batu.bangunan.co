@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Tirtajaya Depok [1/2-2/3-3/5]"
-date: "2024-03-20"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Tirtajaya Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sebagaimana dg ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Tirtajaya Depok [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Tirtajaya Depok [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya sebagaimana dg ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Tirtajaya Depok \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton ialah komponen konstruksi yang wajib ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.

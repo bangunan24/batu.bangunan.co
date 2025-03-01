@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pondok Kelapa Jakarta [1/2-2/3-3/5]"
-date: "2024-03-18"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pondok Kelapa Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang diorder bersih tanp..."
+title: 'Jual Batu Split Di Pondok Kelapa Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pondok Kelapa Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang diorder bersih
+  tanp...
 ---
 
 **Jual Batu Split Di Pondok Kelapa Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton ialah komponen konstruksi yang wajib ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

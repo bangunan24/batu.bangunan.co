@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Sukasari Bogor [1/2-2/3-3/5]"
-date: "2024-03-09"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Sukasari Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya pas dg ukruan yang dipesan bersih tanpa ada..."
+title: 'Jual Batu Split Di Sukasari Bogor [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Sukasari Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya pas dg ukruan yang dipesan bersih tanpa
+  ada...
 ---
 
 **Jual Batu Split Di Sukasari Bogor \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton merupakan bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu hanya sedikit penerapan beton didalamnya.

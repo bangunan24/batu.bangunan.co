@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cililitan Jakarta [1/2-2/3-3/5]"
-date: "2024-03-04"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cililitan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sebagaimana dengan ukruan yang dipesan b..."
+title: 'Jual Batu Split Di Cililitan Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cililitan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya sebagaimana dengan ukruan yang dipesan
+  b...
 ---
 
 **Jual Batu Split Di Cililitan Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwa konstruksi beton ialah bagian konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

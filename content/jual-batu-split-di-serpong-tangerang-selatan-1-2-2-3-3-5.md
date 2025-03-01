@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Serpong Tangerang Selatan [1/2-2/3-3/5]"
-date: "2024-03-09"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Serpong Tangerang Selatan [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya pas dg ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Serpong Tangerang Selatan [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Serpong Tangerang Selatan [1/2-2/3-3/5]. Batu split yang
+  kami kirim pastinya ialah tdk campur ukurannya pas dg ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Serpong Tangerang Selatan \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton merupakan bagian konstruksi yang patut ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% menggunakan material bambu ataupun kayu cuma sedikit penggunaan beton didalamnya.

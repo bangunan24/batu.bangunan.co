@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Muaragembong Bekasi [1/2-2/3-3/5]"
-date: "2024-03-11"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Muaragembong Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang dipesan b..."
+title: 'Jual Batu Split Di Muaragembong Bekasi [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Muaragembong Bekasi [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang
+  dipesan b...
 ---
 
 **Jual Batu Split Di Muaragembong Bekasi \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwa konstruksi beton yakni bagian konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

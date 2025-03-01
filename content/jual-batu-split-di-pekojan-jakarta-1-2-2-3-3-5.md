@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pekojan Jakarta [1/2-2/3-3/5]"
-date: "2024-03-13"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pekojan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sesuai dengan ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Pekojan Jakarta [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pekojan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya sesuai dengan ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Pekojan Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton yaitu komponen konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

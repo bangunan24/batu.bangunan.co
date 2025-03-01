@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cipaku Bogor [1/2-2/3-3/5]"
-date: "2024-03-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cipaku Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sesuai dg ukruan yang diorder bersih tanpa ada..."
+title: 'Jual Batu Split Di Cipaku Bogor [1/2-2/3-3/5]'
+date: '2025-03-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cipaku Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya sesuai dg ukruan yang diorder bersih
+  tanpa ada...
 ---
 
 **Jual Batu Split Di Cipaku Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton ialah bagian konstruksi yang harus ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.
