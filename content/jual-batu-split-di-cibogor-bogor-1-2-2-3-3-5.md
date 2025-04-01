@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cibogor Bogor [1/2-2/3-3/5]"
-date: "2024-04-19"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cibogor Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang dipesan bersih tan..."
+title: 'Jual Batu Split Di Cibogor Bogor [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cibogor Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang dipesan bersih
+  tan...
 ---
 
 **Jual Batu Split Di Cibogor Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton yaitu komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit penerapan beton didalamnya.

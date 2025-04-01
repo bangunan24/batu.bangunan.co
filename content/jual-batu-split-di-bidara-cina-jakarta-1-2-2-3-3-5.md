@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Bidara Cina Jakarta [1/2-2/3-3/5]"
-date: "2024-04-30"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Bidara Cina Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sebagaimana dg ukruan yang diorder bersi..."
+title: 'Jual Batu Split Di Bidara Cina Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Bidara Cina Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya sebagaimana dg ukruan yang diorder
+  bersi...
 ---
 
 **Jual Batu Split Di Bidara Cina Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton yakni komponen konstruksi yang wajib ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% menggunakan material bambu ataupun kayu cuma sedikit pemakaian beton didalamnya.

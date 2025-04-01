@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cilendek Bogor [1/2-2/3-3/5]"
-date: "2024-04-22"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cilendek Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sesuai dg ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Cilendek Bogor [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cilendek Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya sesuai dg ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Cilendek Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwa konstruksi beton adalah komponen konstruksi yang wajib ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

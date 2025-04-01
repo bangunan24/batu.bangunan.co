@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Kali Pondasi Di Karawang [Terdekat]"
-date: "2024-04-30"
-categories: 
-  - "harga"
-description: "Jual Batu Kali Pondasi Di Karawang [Terdekat]. Untuk Anda yang berharap memesan batu pondasi ini dari kami, silakan hubungi kami via nomor telepon dan juga W..."
+title: 'Jual Batu Kali Pondasi Di Karawang [Terdekat]'
+date: '2025-04-01'
+categories:
+  - harga
+description: >-
+  Jual Batu Kali Pondasi Di Karawang [Terdekat]. Untuk Anda yang berharap
+  memesan batu pondasi ini dari kami, silakan hubungi kami via nomor telepon dan
+  juga W...
 ---
 
 **Jual Batu Kali Pondasi Di Karawang \[Terdekat\]** – Sebagus apapun kontruksi sebuah bangunan baik itu sekala kecil ataupun besar tetap membutuhkan pondasi. Karena pondasi adalah pijakan dasar yang menentukan kuat dan tidaknya sebuah bangunan berdiri. Dg itu keberadaan pondasi pada sebuah bangunan merupakan utama adanya tidak bisa kita hindari ketika kita berkeinginan membangun sebuah bangunan. Daya sebuah pondasi juga benar-benar ditetapkan oleh mutu material yang digunakan dalam pembuatan pondasi tersebut. Sekiranya material pondasinya berupa batu kali, tentunya amat ditentukan oleh mutu dari batu yang diaplikasikan, begitupun lainnya seperti pasir, semen yang digunakan sangat menetapkan Kwalitas nya.

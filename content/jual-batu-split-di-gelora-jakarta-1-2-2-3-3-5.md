@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Gelora Jakarta [1/2-2/3-3/5]"
-date: "2024-04-15"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Gelora Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sesuai dg ukruan yang diorder bersih tanp..."
+title: 'Jual Batu Split Di Gelora Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Gelora Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tdk campur ukurannya sesuai dg ukruan yang diorder bersih
+  tanp...
 ---
 
 **Jual Batu Split Di Gelora Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton adalah komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu cuma sedikit penerapan beton didalamnya.

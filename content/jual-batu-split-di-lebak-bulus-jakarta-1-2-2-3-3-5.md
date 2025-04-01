@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Lebak Bulus Jakarta [1/2-2/3-3/5]"
-date: "2024-04-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Lebak Bulus Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sebagaimana dg ukruan yang diorder ber..."
+title: 'Jual Batu Split Di Lebak Bulus Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Lebak Bulus Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya ialah tidak campur ukurannya sebagaimana dg ukruan yang diorder
+  ber...
 ---
 
 **Jual Batu Split Di Lebak Bulus Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton ialah komponen konstruksi yang harus ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

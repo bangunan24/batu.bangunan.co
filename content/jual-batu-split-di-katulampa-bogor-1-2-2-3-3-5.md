@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Katulampa Bogor [1/2-2/3-3/5]"
-date: "2024-04-13"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Katulampa Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa a..."
+title: 'Jual Batu Split Di Katulampa Bogor [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Katulampa Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa
+  a...
 ---
 
 **Jual Batu Split Di Katulampa Bogor \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton yaitu komponen konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

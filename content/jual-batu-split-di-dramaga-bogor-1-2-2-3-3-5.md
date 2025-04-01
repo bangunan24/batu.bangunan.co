@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Dramaga Bogor [1/2-2/3-3/5]"
-date: "2024-04-23"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Dramaga Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sebagaimana dengan ukruan yang diorder b..."
+title: 'Jual Batu Split Di Dramaga Bogor [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Dramaga Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sebagaimana dengan ukruan yang
+  diorder b...
 ---
 
 **Jual Batu Split Di Dramaga Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwa konstruksi beton yaitu komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu hanya sedikit pengaplikasian beton didalamnya.

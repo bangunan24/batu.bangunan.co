@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pulo Gebang Jakarta [1/2-2/3-3/5]"
-date: "2024-04-14"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pulo Gebang Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang dipesan..."
+title: 'Jual Batu Split Di Pulo Gebang Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pulo Gebang Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang
+  dipesan...
 ---
 
 **Jual Batu Split Di Pulo Gebang Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwa konstruksi beton adalah komponen konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu cuma sedikit penggunaan beton didalamnya.

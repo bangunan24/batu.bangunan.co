@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Malaka Jaya Jakarta [1/2-2/3-3/5]"
-date: "2024-04-09"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Malaka Jaya Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya pas dengan ukruan yang dipesan bersih ta..."
+title: 'Jual Batu Split Di Malaka Jaya Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Malaka Jaya Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya pas dengan ukruan yang dipesan
+  bersih ta...
 ---
 
 **Jual Batu Split Di Malaka Jaya Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwa konstruksi beton yaitu komponen konstruksi yang mesti ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% mengaplikasikan material bambu ataupun kayu cuma sedikit penggunaan beton didalamnya.

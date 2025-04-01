@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Neglasari Tangerang [1/2-2/3-3/5]"
-date: "2024-04-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Neglasari Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya pas dengan ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Neglasari Tangerang [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Neglasari Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tidak campur ukurannya pas dengan ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Neglasari Tangerang \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton merupakan komponen konstruksi yang sepatutnya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

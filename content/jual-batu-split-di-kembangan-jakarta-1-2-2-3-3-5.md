@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kembangan Jakarta [1/2-2/3-3/5]"
-date: "2024-04-02"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kembangan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya sebagaimana dengan ukruan yang dipesan ber..."
+title: 'Jual Batu Split Di Kembangan Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kembangan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tdk campur ukurannya sebagaimana dengan ukruan yang dipesan
+  ber...
 ---
 
 **Jual Batu Split Di Kembangan Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton yakni komponen konstruksi yang sepatutnya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu hanya sedikit pengaplikasian beton didalamnya.

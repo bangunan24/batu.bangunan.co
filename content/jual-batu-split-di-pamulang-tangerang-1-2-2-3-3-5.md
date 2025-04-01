@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pamulang Tangerang [1/2-2/3-3/5]"
-date: "2024-04-27"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pamulang Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang diorder bersi..."
+title: 'Jual Batu Split Di Pamulang Tangerang [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pamulang Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang diorder
+  bersi...
 ---
 
 **Jual Batu Split Di Pamulang Tangerang \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton ialah komponen konstruksi yang sepatutnya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu ataupun kayu hanya sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kalisari Jakarta [1/2-2/3-3/5]"
-date: "2024-04-29"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kalisari Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa ada..."
+title: 'Jual Batu Split Di Kalisari Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kalisari Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa
+  ada...
 ---
 
 **Jual Batu Split Di Kalisari Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwa konstruksi beton yaitu bagian konstruksi yang mesti ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

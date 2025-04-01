@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Petamburan Jakarta [1/2-2/3-3/5]"
-date: "2024-04-17"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Petamburan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa a..."
+title: 'Jual Batu Split Di Petamburan Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Petamburan Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang diorder bersih
+  tanpa a...
 ---
 
 **Jual Batu Split Di Petamburan Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwa konstruksi beton ialah bagian konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu cuma sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cakung Jakarta [1/2-2/3-3/5]"
-date: "2024-04-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cakung Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih tanp..."
+title: 'Jual Batu Split Di Cakung Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cakung Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih
+  tanp...
 ---
 
 **Jual Batu Split Di Cakung Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton yakni bagian konstruksi yang mesti ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

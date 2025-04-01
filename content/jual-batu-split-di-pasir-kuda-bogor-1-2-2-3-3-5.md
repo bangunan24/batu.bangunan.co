@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pasir Kuda Bogor [1/2-2/3-3/5]"
-date: "2024-04-17"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pasir Kuda Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya pas dengan ukruan yang diorder bersih t..."
+title: 'Jual Batu Split Di Pasir Kuda Bogor [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pasir Kuda Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tdk campur ukurannya pas dengan ukruan yang diorder bersih
+  t...
 ---
 
 **Jual Batu Split Di Pasir Kuda Bogor \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwa konstruksi beton ialah bagian konstruksi yang harus ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

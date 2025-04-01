@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Bedahan Depok [1/2-2/3-3/5]"
-date: "2024-04-29"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Bedahan Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa ada c..."
+title: 'Jual Batu Split Di Bedahan Depok [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Bedahan Depok [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa
+  ada c...
 ---
 
 **Jual Batu Split Di Bedahan Depok \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton adalah komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

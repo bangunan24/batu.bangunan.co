@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Mangga Dua Jakarta [1/2-2/3-3/5]"
-date: "2024-04-19"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Mangga Dua Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sebagaimana dengan ukruan yang diorder b..."
+title: 'Jual Batu Split Di Mangga Dua Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Mangga Dua Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tdk campur ukurannya sebagaimana dengan ukruan yang
+  diorder b...
 ---
 
 **Jual Batu Split Di Mangga Dua Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton yaitu komponen konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu hanya sedikit penerapan beton didalamnya.

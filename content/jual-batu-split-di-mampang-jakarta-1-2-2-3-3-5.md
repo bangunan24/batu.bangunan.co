@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Mampang Jakarta [1/2-2/3-3/5]"
-date: "2024-04-24"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Mampang Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sebagaimana dengan ukruan yang dipesan ber..."
+title: 'Jual Batu Split Di Mampang Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Mampang Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya sebagaimana dengan ukruan yang dipesan
+  ber...
 ---
 
 **Jual Batu Split Di Mampang Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton yaitu bagian konstruksi yang mesti ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu ataupun kayu cuma sedikit pemakaian beton didalamnya.

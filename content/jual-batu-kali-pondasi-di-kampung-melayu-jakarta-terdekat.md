@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Kali Pondasi Di Kampung Melayu Jakarta [Terdekat]"
-date: "2024-04-27"
-categories: 
-  - "harga"
-description: "Jual Batu Kali Pondasi Di Kampung Melayu Jakarta [Terdekat]. Untuk Anda yang mau mengorder batu pondasi ini dari kami, silakan hubungi kami melalui nomor tel..."
+title: 'Jual Batu Kali Pondasi Di Kampung Melayu Jakarta [Terdekat]'
+date: '2025-04-01'
+categories:
+  - harga
+description: >-
+  Jual Batu Kali Pondasi Di Kampung Melayu Jakarta [Terdekat]. Untuk Anda yang
+  mau mengorder batu pondasi ini dari kami, silakan hubungi kami melalui nomor
+  tel...
 ---
 
 **Jual Batu Kali Pondasi Di Kampung Melayu Jakarta \[Terdekat\]** – Semewah apapun kontruksi sebuah bangunan baik itu sekala kecil maupun besar tetap memerlukan pondasi. Karena pondasi yakni pijakan dasar yang menentukan kuat dan tidaknya sebuah bangunan berdiri. Bersama itu keberadaan pondasi pada sebuah bangunan yakni penting adanya tidak bisa kita hindari ketika kita mau membangun sebuah bangunan. Kekuatan sebuah pondasi juga amat ditentukan oleh mutu material yang diaplikasikan dalam pembuatan pondasi nya. Kalau material pondasinya berupa batu kali, tentunya amat ditentukan oleh mutu dari batu yang diterapkan, begitupun lainnya seperti pasir, semen yang diterapkan betul-betul menentukan Kualitas nya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Benda Tangerang [1/2-2/3-3/5]"
-date: "2024-04-13"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Benda Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersi..."
+title: 'Jual Batu Split Di Benda Tangerang [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Benda Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang dipesan
+  bersi...
 ---
 
 **Jual Batu Split Di Benda Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton ialah komponen konstruksi yang harus ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

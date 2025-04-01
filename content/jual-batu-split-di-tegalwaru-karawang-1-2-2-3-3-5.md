@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Tegalwaru Karawang [1/2-2/3-3/5]"
-date: "2024-04-11"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Tegalwaru Karawang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang dipesan b..."
+title: 'Jual Batu Split Di Tegalwaru Karawang [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Tegalwaru Karawang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang
+  dipesan b...
 ---
 
 **Jual Batu Split Di Tegalwaru Karawang \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwasanya konstruksi beton ialah bagian konstruksi yang patut ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

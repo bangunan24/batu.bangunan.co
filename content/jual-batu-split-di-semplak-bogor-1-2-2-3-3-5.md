@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Semplak Bogor [1/2-2/3-3/5]"
-date: "2024-04-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Semplak Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tidak campur ukurannya pas dg ukruan yang diorder bersih tanpa ada..."
+title: 'Jual Batu Split Di Semplak Bogor [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Semplak Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tidak campur ukurannya pas dg ukruan yang diorder bersih tanpa
+  ada...
 ---
 
 **Jual Batu Split Di Semplak Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton yakni komponen konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% menerapkan material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

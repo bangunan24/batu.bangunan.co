@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Mekarsari Depok [1/2-2/3-3/5]"
-date: "2024-04-19"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Mekarsari Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sebagaimana dengan ukruan yang dipesan ber..."
+title: 'Jual Batu Split Di Mekarsari Depok [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Mekarsari Depok [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya sebagaimana dengan ukruan yang dipesan
+  ber...
 ---
 
 **Jual Batu Split Di Mekarsari Depok \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton adalah komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Duren Tiga Jakarta [1/2-2/3-3/5]"
-date: "2024-04-09"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Duren Tiga Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya pas dengan ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Duren Tiga Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Duren Tiga Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tdk campur ukurannya pas dengan ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Duren Tiga Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwa konstruksi beton yaitu komponen konstruksi yang wajib ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% menggunakan material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

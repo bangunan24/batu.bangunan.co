@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Rawamangun Jakarta [1/2-2/3-3/5]"
-date: "2024-04-13"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Rawamangun Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Rawamangun Jakarta [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Rawamangun Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tdk campur ukurannya sesuai dengan ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Rawamangun Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton merupakan komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

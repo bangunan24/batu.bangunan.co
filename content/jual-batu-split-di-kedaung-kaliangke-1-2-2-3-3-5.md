@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kedaung Kaliangke [1/2-2/3-3/5]"
-date: "2024-04-22"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kedaung Kaliangke [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih t..."
+title: 'Jual Batu Split Di Kedaung Kaliangke [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kedaung Kaliangke [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih
+  t...
 ---
 
 **Jual Batu Split Di Kedaung Kaliangke \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton yakni bagian konstruksi yang sepatutnya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

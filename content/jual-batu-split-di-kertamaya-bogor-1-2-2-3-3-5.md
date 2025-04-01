@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kertamaya Bogor [1/2-2/3-3/5]"
-date: "2024-04-04"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kertamaya Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya pas dengan ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Kertamaya Bogor [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kertamaya Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tdk campur ukurannya pas dengan ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Kertamaya Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwa konstruksi beton yakni komponen konstruksi yang mesti ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

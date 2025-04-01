@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Periuk Tangerang [1/2-2/3-3/5]"
-date: "2024-04-02"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Periuk Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sebagaimana dg ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Periuk Tangerang [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Periuk Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya sebagaimana dg ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Periuk Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwasanya konstruksi beton merupakan bagian konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

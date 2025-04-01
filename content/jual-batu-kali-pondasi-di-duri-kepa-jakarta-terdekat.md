@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Kali Pondasi Di Duri Kepa Jakarta [Terdekat]"
-date: "2024-04-28"
-categories: 
-  - "harga"
-description: "Jual Batu Kali Pondasi Di Duri Kepa Jakarta [Terdekat]. Untuk Anda yang berkeinginan memesan batu pondasi ini dari kami, silakan hubungi kami lewat nomor tel..."
+title: 'Jual Batu Kali Pondasi Di Duri Kepa Jakarta [Terdekat]'
+date: '2025-04-01'
+categories:
+  - harga
+description: >-
+  Jual Batu Kali Pondasi Di Duri Kepa Jakarta [Terdekat]. Untuk Anda yang
+  berkeinginan memesan batu pondasi ini dari kami, silakan hubungi kami lewat
+  nomor tel...
 ---
 
 **Jual Batu Kali Pondasi Di Duri Kepa Jakarta \[Terdekat\]** – Sehebat apa saja kontruksi sebuah bangunan apakah itu sekala kecil ataupun besar pasti membutuhkan pondasi. Karena pondasi merupakan pijakan dasar yang memastikan kuat dan tidaknya sebuah bangunan berdiri. Dengan itu keberadaan pondasi pada sebuah bangunan yaitu utama adanya tidak dapat kita hindari saat kita berencana membangun sebuah bangunan. Kekuatan sebuah pondasi juga betul-betul diatur oleh mutu material yang digunakan dalam pembuatan pondasi tersebut. Sekiranya material pondasinya berupa batu kali, tentunya sangat ditentukan oleh mutu dari batu yang digunakan, begitupun lainnya seperti pasir, semen yang diaplikasikan sungguh-sungguh menetapkan Mutu nya.

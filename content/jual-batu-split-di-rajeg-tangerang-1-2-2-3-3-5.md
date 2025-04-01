@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Rajeg Tangerang [1/2-2/3-3/5]"
-date: "2024-04-12"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Rajeg Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya pas dengan ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Rajeg Tangerang [1/2-2/3-3/5]'
+date: '2025-04-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Rajeg Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya pas dengan ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Rajeg Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton yakni komponen konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu ataupun kayu cuma sedikit pemakaian beton didalamnya.
