@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Galur Jakarta [1/2-2/3-3/5]"
-date: "2024-05-11"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Galur Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa ada ca..."
+title: 'Jual Batu Split Di Galur Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Galur Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa
+  ada ca...
 ---
 
 **Jual Batu Split Di Galur Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton adalah bagian konstruksi yang wajib ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

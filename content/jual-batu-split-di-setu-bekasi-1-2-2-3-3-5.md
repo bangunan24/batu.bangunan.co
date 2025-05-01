@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Setu Bekasi [1/2-2/3-3/5]"
-date: "2024-05-15"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Setu Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa ada c..."
+title: 'Jual Batu Split Di Setu Bekasi [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Setu Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa
+  ada c...
 ---
 
 **Jual Batu Split Di Setu Bekasi \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton yakni komponen konstruksi yang mesti ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

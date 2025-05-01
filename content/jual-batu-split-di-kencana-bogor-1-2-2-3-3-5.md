@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kencana Bogor [1/2-2/3-3/5]"
-date: "2024-05-03"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kencana Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa ada ca..."
+title: 'Jual Batu Split Di Kencana Bogor [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kencana Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa
+  ada ca...
 ---
 
 **Jual Batu Split Di Kencana Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton merupakan bagian konstruksi yang mesti ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

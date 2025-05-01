@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kedaung Depok [1/2-2/3-3/5]"
-date: "2024-05-13"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kedaung Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sesuai dengan ukruan yang dipesan bersih tan..."
+title: 'Jual Batu Split Di Kedaung Depok [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kedaung Depok [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya sesuai dengan ukruan yang dipesan bersih
+  tan...
 ---
 
 **Jual Batu Split Di Kedaung Depok \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwa konstruksi beton ialah bagian konstruksi yang harus ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

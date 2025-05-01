@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pasawahan Purwakarta [1/2-2/3-3/5]"
-date: "2024-05-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pasawahan Purwakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang dipesan..."
+title: 'Jual Batu Split Di Pasawahan Purwakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pasawahan Purwakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang
+  dipesan...
 ---
 
 **Jual Batu Split Di Pasawahan Purwakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwa konstruksi beton merupakan komponen konstruksi yang sepatutnya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

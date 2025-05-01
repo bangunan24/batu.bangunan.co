@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Empang Bogor [1/2-2/3-3/5]"
-date: "2024-05-22"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Empang Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya pas dengan ukruan yang dipesan bersih tanpa..."
+title: 'Jual Batu Split Di Empang Bogor [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Empang Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tdk campur ukurannya pas dengan ukruan yang dipesan bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Empang Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwasanya konstruksi beton adalah bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

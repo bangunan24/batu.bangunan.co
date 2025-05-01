@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Bambu Apus Jakarta [1/2-2/3-3/5]"
-date: "2024-05-15"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Bambu Apus Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sebagaimana dg ukruan yang diorder bersi..."
+title: 'Jual Batu Split Di Bambu Apus Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Bambu Apus Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tdk campur ukurannya sebagaimana dg ukruan yang diorder
+  bersi...
 ---
 
 **Jual Batu Split Di Bambu Apus Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwasanya konstruksi beton ialah bagian konstruksi yang wajib ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

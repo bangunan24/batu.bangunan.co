@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Gunung Batu Bogor [1/2-2/3-3/5]"
-date: "2024-05-23"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Gunung Batu Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Gunung Batu Bogor [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Gunung Batu Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya sesuai dengan ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Gunung Batu Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton adalah komponen konstruksi yang wajib ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

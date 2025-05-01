@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Serua Depok [1/2-2/3-3/5]"
-date: "2024-05-09"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Serua Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sebagaimana dengan ukruan yang diorder bersih t..."
+title: 'Jual Batu Split Di Serua Depok [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Serua Depok [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya sebagaimana dengan ukruan yang diorder
+  bersih t...
 ---
 
 **Jual Batu Split Di Serua Depok \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwa konstruksi beton yakni komponen konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu ataupun kayu hanya sedikit pengaplikasian beton didalamnya.

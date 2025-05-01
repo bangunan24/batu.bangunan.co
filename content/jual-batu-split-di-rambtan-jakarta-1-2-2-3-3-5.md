@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Rambtan Jakarta [1/2-2/3-3/5]"
-date: "2024-05-24"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Rambtan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sesuai dengan ukruan yang dipesan bersih t..."
+title: 'Jual Batu Split Di Rambtan Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Rambtan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya sesuai dengan ukruan yang dipesan bersih
+  t...
 ---
 
 **Jual Batu Split Di Rambtan Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwa konstruksi beton merupakan bagian konstruksi yang harus ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

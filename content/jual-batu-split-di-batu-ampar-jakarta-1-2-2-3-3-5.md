@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Batu Ampar Jakarta [1/2-2/3-3/5]"
-date: "2024-05-21"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Batu Ampar Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya sesuai dengan ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Batu Ampar Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Batu Ampar Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yakni tdk campur ukurannya sesuai dengan ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Batu Ampar Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton yaitu komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu maupun kayu cuma sedikit pemakaian beton didalamnya.

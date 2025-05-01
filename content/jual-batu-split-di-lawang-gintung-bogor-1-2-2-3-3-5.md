@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Lawang Gintung Bogor [1/2-2/3-3/5]"
-date: "2024-05-02"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Lawang Gintung Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tidak campur ukurannya pas dg ukruan yang diorder bersih tan..."
+title: 'Jual Batu Split Di Lawang Gintung Bogor [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Lawang Gintung Bogor [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yakni tidak campur ukurannya pas dg ukruan yang diorder bersih
+  tan...
 ---
 
 **Jual Batu Split Di Lawang Gintung Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton yakni komponen konstruksi yang harus ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu ataupun kayu hanya sedikit penerapan beton didalamnya.

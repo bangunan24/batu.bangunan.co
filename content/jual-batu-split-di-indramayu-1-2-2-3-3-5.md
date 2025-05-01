@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Indramayu [1/2-2/3-3/5]"
-date: "2024-05-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Indramayu [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa ada cam..."
+title: 'Jual Batu Split Di Indramayu [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Indramayu [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa
+  ada cam...
 ---
 
 **Jual Batu Split Di Indramayu \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton yaitu komponen konstruksi yang wajib ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

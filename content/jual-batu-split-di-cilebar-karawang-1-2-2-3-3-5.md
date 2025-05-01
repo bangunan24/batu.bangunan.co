@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cilebar Karawang [1/2-2/3-3/5]"
-date: "2024-05-04"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cilebar Karawang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sebagaimana dengan ukruan yang dipesan b..."
+title: 'Jual Batu Split Di Cilebar Karawang [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cilebar Karawang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya sebagaimana dengan ukruan yang dipesan
+  b...
 ---
 
 **Jual Batu Split Di Cilebar Karawang \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton yakni komponen konstruksi yang harus ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

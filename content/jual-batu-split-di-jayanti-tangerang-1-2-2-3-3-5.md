@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Jayanti Tangerang [1/2-2/3-3/5]"
-date: "2024-05-24"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Jayanti Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya pas dengan ukruan yang diorder bersih t..."
+title: 'Jual Batu Split Di Jayanti Tangerang [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Jayanti Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya pas dengan ukruan yang diorder bersih
+  t...
 ---
 
 **Jual Batu Split Di Jayanti Tangerang \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton merupakan bagian konstruksi yang mesti ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

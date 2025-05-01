@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Duri Utara Jakarta [1/2-2/3-3/5]"
-date: "2024-05-19"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Duri Utara Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang dipesan be..."
+title: 'Jual Batu Split Di Duri Utara Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Duri Utara Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang
+  dipesan be...
 ---
 
 **Jual Batu Split Di Duri Utara Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwasanya konstruksi beton adalah komponen konstruksi yang wajib ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.

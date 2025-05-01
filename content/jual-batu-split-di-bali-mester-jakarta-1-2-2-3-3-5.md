@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Bali Mester Jakarta [1/2-2/3-3/5]"
-date: "2024-05-03"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Bali Mester Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tidak campur ukurannya sebagaimana dg ukruan yang diorder ber..."
+title: 'Jual Batu Split Di Bali Mester Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Bali Mester Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yakni tidak campur ukurannya sebagaimana dg ukruan yang diorder
+  ber...
 ---
 
 **Jual Batu Split Di Bali Mester Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton adalah komponen konstruksi yang harus ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu ataupun kayu cuma sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Citeureup Bogor [1/2-2/3-3/5]"
-date: "2024-05-26"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Citeureup Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya pas dengan ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Citeureup Bogor [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Citeureup Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tdk campur ukurannya pas dengan ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Citeureup Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton ialah komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

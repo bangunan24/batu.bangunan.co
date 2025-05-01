@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Setu Jakarta [1/2-2/3-3/5]"
-date: "2024-05-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Setu Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya pas dengan ukruan yang diorder bersih tanpa a..."
+title: 'Jual Batu Split Di Setu Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Setu Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya pas dengan ukruan yang diorder bersih
+  tanpa a...
 ---
 
 **Jual Batu Split Di Setu Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton merupakan bagian konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Karang Anyar Jakarta [1/2-2/3-3/5]"
-date: "2024-05-11"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Karang Anyar Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Karang Anyar Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Karang Anyar Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Karang Anyar Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton merupakan komponen konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

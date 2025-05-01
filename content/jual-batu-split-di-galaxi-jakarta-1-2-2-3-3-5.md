@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Galaxi Jakarta [1/2-2/3-3/5]"
-date: "2024-05-13"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Galaxi Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih tan..."
+title: 'Jual Batu Split Di Galaxi Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Galaxi Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih
+  tan...
 ---
 
 **Jual Batu Split Di Galaxi Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton adalah bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

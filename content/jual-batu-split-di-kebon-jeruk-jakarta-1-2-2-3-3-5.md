@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kebon Jeruk Jakarta [1/2-2/3-3/5]"
-date: "2024-05-20"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kebon Jeruk Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya pas dengan ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Kebon Jeruk Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kebon Jeruk Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tidak campur ukurannya pas dengan ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Kebon Jeruk Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwa konstruksi beton adalah komponen konstruksi yang patut ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit penerapan beton didalamnya.

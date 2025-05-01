@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Glodok Jakarta [1/2-2/3-3/5]"
-date: "2024-05-26"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Glodok Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sesuai dengan ukruan yang diorder bersih tan..."
+title: 'Jual Batu Split Di Glodok Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Glodok Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya sesuai dengan ukruan yang diorder bersih
+  tan...
 ---
 
 **Jual Batu Split Di Glodok Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton adalah bagian konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu cuma sedikit pemakaian beton didalamnya.

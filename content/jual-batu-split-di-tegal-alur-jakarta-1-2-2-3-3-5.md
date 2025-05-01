@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Tegal Alur Jakarta [1/2-2/3-3/5]"
-date: "2024-05-14"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Tegal Alur Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sebagaimana dg ukruan yang diorder bers..."
+title: 'Jual Batu Split Di Tegal Alur Jakarta [1/2-2/3-3/5]'
+date: '2025-05-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Tegal Alur Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tidak campur ukurannya sebagaimana dg ukruan yang diorder
+  bers...
 ---
 
 **Jual Batu Split Di Tegal Alur Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwasanya konstruksi beton adalah bagian konstruksi yang wajib ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.
