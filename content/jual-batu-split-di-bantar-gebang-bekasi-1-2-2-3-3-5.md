@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Bantar Gebang Bekasi [1/2-2/3-3/5]"
-date: "2024-06-29"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Bantar Gebang Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sebagaimana dg ukruan yang diorder bers..."
+title: 'Jual Batu Split Di Bantar Gebang Bekasi [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Bantar Gebang Bekasi [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya sebagaimana dg ukruan yang diorder
+  bers...
 ---
 
 **Jual Batu Split Di Bantar Gebang Bekasi \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton ialah bagian konstruksi yang sepatutnya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% menerapkan material bambu ataupun kayu cuma sedikit penerapan beton didalamnya.

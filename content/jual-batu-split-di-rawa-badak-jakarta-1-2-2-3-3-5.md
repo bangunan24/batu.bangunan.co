@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Rawa Badak Jakarta [1/2-2/3-3/5]"
-date: "2024-06-27"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Rawa Badak Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa a..."
+title: 'Jual Batu Split Di Rawa Badak Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Rawa Badak Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya ialah tdk campur ukurannya pas dg ukruan yang diorder bersih
+  tanpa a...
 ---
 
 **Jual Batu Split Di Rawa Badak Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwa konstruksi beton adalah komponen konstruksi yang mesti ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

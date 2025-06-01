@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Larangan Tangerang [1/2-2/3-3/5]"
-date: "2024-06-28"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Larangan Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa a..."
+title: 'Jual Batu Split Di Larangan Tangerang [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Larangan Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang dipesan bersih
+  tanpa a...
 ---
 
 **Jual Batu Split Di Larangan Tangerang \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton yakni bagian konstruksi yang wajib ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Sukadiri Tangerang [1/2-2/3-3/5]"
-date: "2024-06-25"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Sukadiri Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang dipesan..."
+title: 'Jual Batu Split Di Sukadiri Tangerang [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Sukadiri Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang
+  dipesan...
 ---
 
 **Jual Batu Split Di Sukadiri Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton ialah komponen konstruksi yang sepatutnya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% menggunakan material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

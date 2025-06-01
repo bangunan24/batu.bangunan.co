@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pasar Baru Jakarta [1/2-2/3-3/5]"
-date: "2024-06-06"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pasar Baru Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang dipesan bersi..."
+title: 'Jual Batu Split Di Pasar Baru Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pasar Baru Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang dipesan
+  bersi...
 ---
 
 **Jual Batu Split Di Pasar Baru Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwasanya konstruksi beton adalah bagian konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

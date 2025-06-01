@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Meruya Jakarta [1/2-2/3-3/5]"
-date: "2024-06-15"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Meruya Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sebagaimana dengan ukruan yang dipesan bers..."
+title: 'Jual Batu Split Di Meruya Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Meruya Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya sebagaimana dengan ukruan yang dipesan
+  bers...
 ---
 
 **Jual Batu Split Di Meruya Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton adalah bagian konstruksi yang mesti ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

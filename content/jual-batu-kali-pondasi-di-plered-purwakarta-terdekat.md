@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Kali Pondasi Di Plered Purwakarta [Terdekat]"
-date: "2024-06-12"
-categories: 
-  - "harga"
-description: "Jual Batu Kali Pondasi Di Plered Purwakarta [Terdekat]. Untuk Anda yang mau mengorder batu pondasi ini dari kami, silakan hubungi kami melalui nomor telepon..."
+title: 'Jual Batu Kali Pondasi Di Plered Purwakarta [Terdekat]'
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Batu Kali Pondasi Di Plered Purwakarta [Terdekat]. Untuk Anda yang mau
+  mengorder batu pondasi ini dari kami, silakan hubungi kami melalui nomor
+  telepon...
 ---
 
 **Jual Batu Kali Pondasi Di Plered Purwakarta \[Terdekat\]** – Sebagus apapun kontruksi sebuah bangunan baik itu sekala kecil maupun besar pasti membutuhkan pondasi. Sebab pondasi adalah pijakan dasar yang menentukan kuat dan tidaknya sebuah bangunan berdiri. Bersama itu eksistensi pondasi pada sebuah bangunan yaitu utama adanya tidak dapat kita hindari saat kita ingin membangun sebuah bangunan. Daya sebuah pondasi juga amat diatur oleh mutu material yang diterapkan dalam pembuatan pondasi tersebut. Bila material pondasinya berupa batu kali, tentunya amat diatur oleh kwalitas dari batu yang dipakai, begitupun lainnya seperti pasir, semen yang dipakai benar-benar menentukan Mutu nya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Maniis Purwakarta [1/2-2/3-3/5]"
-date: "2024-06-25"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Maniis Purwakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tidak campur ukurannya sesuai dg ukruan yang dipesan bersih tan..."
+title: 'Jual Batu Split Di Maniis Purwakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Maniis Purwakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tidak campur ukurannya sesuai dg ukruan yang dipesan bersih
+  tan...
 ---
 
 **Jual Batu Split Di Maniis Purwakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwasanya konstruksi beton yaitu komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

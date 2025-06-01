@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Batujaya Karawang [1/2-2/3-3/5]"
-date: "2024-06-21"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Batujaya Karawang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya pas dengan ukruan yang diorder bersih tanp..."
+title: 'Jual Batu Split Di Batujaya Karawang [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Batujaya Karawang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya pas dengan ukruan yang diorder bersih
+  tanp...
 ---
 
 **Jual Batu Split Di Batujaya Karawang \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton adalah komponen konstruksi yang sepatutnya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Ciputat Tangerang [1/2-2/3-3/5]"
-date: "2024-06-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Ciputat Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sesuai dengan ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Ciputat Tangerang [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Ciputat Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya sesuai dengan ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Ciputat Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton yaitu bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

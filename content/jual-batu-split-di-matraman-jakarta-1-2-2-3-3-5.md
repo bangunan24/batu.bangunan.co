@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Matraman Jakarta [1/2-2/3-3/5]"
-date: "2024-06-21"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Matraman Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sesuai dengan ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Matraman Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Matraman Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya sesuai dengan ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Matraman Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwasanya konstruksi beton merupakan komponen konstruksi yang patut ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

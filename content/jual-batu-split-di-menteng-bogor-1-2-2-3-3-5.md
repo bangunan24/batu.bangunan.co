@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Menteng Bogor [1/2-2/3-3/5]"
-date: "2024-06-11"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Menteng Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa ada ca..."
+title: 'Jual Batu Split Di Menteng Bogor [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Menteng Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa
+  ada ca...
 ---
 
 **Jual Batu Split Di Menteng Bogor \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton adalah bagian konstruksi yang sepatutnya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

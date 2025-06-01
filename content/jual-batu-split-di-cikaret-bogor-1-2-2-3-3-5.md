@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cikaret Bogor [1/2-2/3-3/5]"
-date: "2024-06-29"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cikaret Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sesuai dg ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Cikaret Bogor [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cikaret Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tdk campur ukurannya sesuai dg ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Cikaret Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwa konstruksi beton adalah bagian konstruksi yang harus ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

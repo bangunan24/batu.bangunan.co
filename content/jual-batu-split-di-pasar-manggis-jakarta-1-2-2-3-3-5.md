@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pasar Manggis Jakarta [1/2-2/3-3/5]"
-date: "2024-06-17"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pasar Manggis Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sesuai dg ukruan yang dipesan bersi..."
+title: 'Jual Batu Split Di Pasar Manggis Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pasar Manggis Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tidak campur ukurannya sesuai dg ukruan yang dipesan
+  bersi...
 ---
 
 **Jual Batu Split Di Pasar Manggis Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton merupakan bagian konstruksi yang harus ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

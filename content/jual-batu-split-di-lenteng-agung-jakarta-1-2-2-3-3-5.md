@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Lenteng Agung Jakarta [1/2-2/3-3/5]"
-date: "2024-06-04"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Lenteng Agung Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang dipes..."
+title: 'Jual Batu Split Di Lenteng Agung Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Lenteng Agung Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang
+  dipes...
 ---
 
 **Jual Batu Split Di Lenteng Agung Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton merupakan bagian konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.

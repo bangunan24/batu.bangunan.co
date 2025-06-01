@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cipete Jakarta [1/2-2/3-3/5]"
-date: "2024-06-08"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cipete Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa ada c..."
+title: 'Jual Batu Split Di Cipete Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cipete Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa
+  ada c...
 ---
 
 **Jual Batu Split Di Cipete Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwa konstruksi beton yakni bagian konstruksi yang wajib ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu cuma sedikit penggunaan beton didalamnya.

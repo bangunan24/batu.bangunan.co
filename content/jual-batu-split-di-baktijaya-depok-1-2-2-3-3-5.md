@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Baktijaya Depok [1/2-2/3-3/5]"
-date: "2024-06-15"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Baktijaya Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa ada..."
+title: 'Jual Batu Split Di Baktijaya Depok [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Baktijaya Depok [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa
+  ada...
 ---
 
 **Jual Batu Split Di Baktijaya Depok \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton adalah komponen konstruksi yang patut ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

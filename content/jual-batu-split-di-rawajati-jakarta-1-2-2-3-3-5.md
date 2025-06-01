@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Rawajati Jakarta [1/2-2/3-3/5]"
-date: "2024-06-15"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Rawajati Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih ta..."
+title: 'Jual Batu Split Di Rawajati Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Rawajati Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tdk campur ukurannya sesuai dengan ukruan yang dipesan bersih
+  ta...
 ---
 
 **Jual Batu Split Di Rawajati Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton yakni komponen konstruksi yang patut ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu ataupun kayu hanya sedikit pengaplikasian beton didalamnya.

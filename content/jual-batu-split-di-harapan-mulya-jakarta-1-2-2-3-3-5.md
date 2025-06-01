@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Harapan Mulya Jakarta [1/2-2/3-3/5]"
-date: "2024-06-19"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Harapan Mulya Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sebagaimana dg ukruan yang diorder b..."
+title: 'Jual Batu Split Di Harapan Mulya Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Harapan Mulya Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tidak campur ukurannya sebagaimana dg ukruan yang diorder
+  b...
 ---
 
 **Jual Batu Split Di Harapan Mulya Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwa konstruksi beton ialah bagian konstruksi yang sepatutnya ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu hanya sedikit penerapan beton didalamnya.

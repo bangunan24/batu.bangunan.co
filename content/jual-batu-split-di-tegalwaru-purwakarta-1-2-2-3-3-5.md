@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Tegalwaru Purwakarta [1/2-2/3-3/5]"
-date: "2024-06-14"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Tegalwaru Purwakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sesuai dg ukruan yang dipesan bersih ta..."
+title: 'Jual Batu Split Di Tegalwaru Purwakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Tegalwaru Purwakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya sesuai dg ukruan yang dipesan bersih
+  ta...
 ---
 
 **Jual Batu Split Di Tegalwaru Purwakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton yaitu komponen konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

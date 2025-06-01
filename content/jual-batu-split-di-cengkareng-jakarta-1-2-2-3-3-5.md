@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cengkareng Jakarta [1/2-2/3-3/5]"
-date: "2024-06-23"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cengkareng Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sesuai dengan ukruan yang dipesan bersi..."
+title: 'Jual Batu Split Di Cengkareng Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cengkareng Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tidak campur ukurannya sesuai dengan ukruan yang dipesan
+  bersi...
 ---
 
 **Jual Batu Split Di Cengkareng Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton yakni komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.

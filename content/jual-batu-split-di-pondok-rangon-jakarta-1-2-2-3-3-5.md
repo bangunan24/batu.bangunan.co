@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pondok Rangon Jakarta [1/2-2/3-3/5]"
-date: "2024-06-12"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pondok Rangon Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sesuai dg ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Pondok Rangon Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pondok Rangon Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tidak campur ukurannya sesuai dg ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Pondok Rangon Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwasanya konstruksi beton ialah bagian konstruksi yang patut ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.

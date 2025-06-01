@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Jatisampurna Bekasi [1/2-2/3-3/5]"
-date: "2024-06-13"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Jatisampurna Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya pas dengan ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Jatisampurna Bekasi [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Jatisampurna Bekasi [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tidak campur ukurannya pas dengan ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Jatisampurna Bekasi \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwa konstruksi beton ialah bagian konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

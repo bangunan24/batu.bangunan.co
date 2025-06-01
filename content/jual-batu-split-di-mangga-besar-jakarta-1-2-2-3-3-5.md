@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Mangga Besar Jakarta [1/2-2/3-3/5]"
-date: "2024-06-07"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Mangga Besar Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sebagaimana dengan ukruan yang diorder..."
+title: 'Jual Batu Split Di Mangga Besar Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Mangga Besar Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya sebagaimana dengan ukruan yang
+  diorder...
 ---
 
 **Jual Batu Split Di Mangga Besar Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton adalah bagian konstruksi yang sepatutnya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

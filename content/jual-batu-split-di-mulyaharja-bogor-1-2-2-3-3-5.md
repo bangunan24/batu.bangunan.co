@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Mulyaharja Bogor [1/2-2/3-3/5]"
-date: "2024-06-12"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Mulyaharja Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sesuai dg ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Mulyaharja Bogor [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Mulyaharja Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tdk campur ukurannya sesuai dg ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Mulyaharja Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwa konstruksi beton ialah bagian konstruksi yang harus ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

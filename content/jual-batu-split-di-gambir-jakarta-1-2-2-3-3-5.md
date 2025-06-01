@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Gambir Jakarta [1/2-2/3-3/5]"
-date: "2024-06-08"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Gambir Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sesuai dg ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Gambir Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Gambir Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya sesuai dg ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Gambir Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton adalah komponen konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

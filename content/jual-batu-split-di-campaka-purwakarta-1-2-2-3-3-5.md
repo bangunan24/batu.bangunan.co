@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Campaka Purwakarta [1/2-2/3-3/5]"
-date: "2024-06-08"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Campaka Purwakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sebagaimana dengan ukruan yang dipesan..."
+title: 'Jual Batu Split Di Campaka Purwakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Campaka Purwakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya ialah tidak campur ukurannya sebagaimana dengan ukruan yang
+  dipesan...
 ---
 
 **Jual Batu Split Di Campaka Purwakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton yaitu komponen konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pasarkemis Tangerang [1/2-2/3-3/5]"
-date: "2024-06-09"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pasarkemis Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya pas dengan ukruan yang diorder bersi..."
+title: 'Jual Batu Split Di Pasarkemis Tangerang [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pasarkemis Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tidak campur ukurannya pas dengan ukruan yang diorder
+  bersi...
 ---
 
 **Jual Batu Split Di Pasarkemis Tangerang \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton yaitu bagian konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

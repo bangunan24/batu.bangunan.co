@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cipulir Jakarta [1/2-2/3-3/5]"
-date: "2024-06-13"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cipulir Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya pas dg ukruan yang dipesan bersih tanpa ad..."
+title: 'Jual Batu Split Di Cipulir Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cipulir Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya pas dg ukruan yang dipesan bersih tanpa
+  ad...
 ---
 
 **Jual Batu Split Di Cipulir Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton ialah bagian konstruksi yang wajib ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Susukan Jakarta [1/2-2/3-3/5]"
-date: "2024-06-03"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Susukan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya pas dengan ukruan yang dipesan bersih tanpa..."
+title: 'Jual Batu Split Di Susukan Jakarta [1/2-2/3-3/5]'
+date: '2025-06-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Susukan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya pas dengan ukruan yang dipesan bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Susukan Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwasanya konstruksi beton ialah komponen konstruksi yang mesti ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu cuma sedikit penerapan beton didalamnya.
