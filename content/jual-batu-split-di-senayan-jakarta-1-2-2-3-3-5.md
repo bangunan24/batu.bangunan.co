@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Senayan Jakarta [1/2-2/3-3/5]"
-date: "2024-07-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Senayan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa..."
+title: 'Jual Batu Split Di Senayan Jakarta [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Senayan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya sesuai dg ukruan yang dipesan bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Senayan Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton merupakan bagian konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pluit Jakarta [1/2-2/3-3/5]"
-date: "2024-07-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pluit Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih tanp..."
+title: 'Jual Batu Split Di Pluit Jakarta [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pluit Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih
+  tanp...
 ---
 
 **Jual Batu Split Di Pluit Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton ialah komponen konstruksi yang wajib ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

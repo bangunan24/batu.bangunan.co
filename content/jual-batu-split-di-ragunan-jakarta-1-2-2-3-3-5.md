@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Ragunan Jakarta [1/2-2/3-3/5]"
-date: "2024-07-02"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Ragunan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sebagaimana dengan ukruan yang dipesan ber..."
+title: 'Jual Batu Split Di Ragunan Jakarta [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Ragunan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya sebagaimana dengan ukruan yang dipesan
+  ber...
 ---
 
 **Jual Batu Split Di Ragunan Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton adalah bagian konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

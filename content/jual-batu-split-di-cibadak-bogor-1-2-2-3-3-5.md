@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cibadak Bogor [1/2-2/3-3/5]"
-date: "2024-07-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cibadak Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa a..."
+title: 'Jual Batu Split Di Cibadak Bogor [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cibadak Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya sesuai dg ukruan yang dipesan bersih
+  tanpa a...
 ---
 
 **Jual Batu Split Di Cibadak Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton merupakan bagian konstruksi yang harus ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Bojong Purwakarta [1/2-2/3-3/5]"
-date: "2024-07-01"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Bojong Purwakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa a..."
+title: 'Jual Batu Split Di Bojong Purwakarta [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Bojong Purwakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa
+  a...
 ---
 
 **Jual Batu Split Di Bojong Purwakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton ialah komponen konstruksi yang sepatutnya ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu ataupun kayu hanya sedikit pengaplikasian beton didalamnya.

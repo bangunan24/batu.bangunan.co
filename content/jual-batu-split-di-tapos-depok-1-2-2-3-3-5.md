@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Tapos Depok [1/2-2/3-3/5]"
-date: "2024-07-06"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Tapos Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sebagaimana dengan ukruan yang dipesan bersih ta..."
+title: 'Jual Batu Split Di Tapos Depok [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Tapos Depok [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sebagaimana dengan ukruan yang dipesan
+  bersih ta...
 ---
 
 **Jual Batu Split Di Tapos Depok \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwa konstruksi beton adalah bagian konstruksi yang wajib ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% mengaplikasikan material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.

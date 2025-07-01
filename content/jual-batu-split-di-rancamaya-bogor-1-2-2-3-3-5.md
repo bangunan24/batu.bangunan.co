@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Rancamaya Bogor [1/2-2/3-3/5]"
-date: "2024-07-26"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Rancamaya Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa a..."
+title: 'Jual Batu Split Di Rancamaya Bogor [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Rancamaya Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tanpa
+  a...
 ---
 
 **Jual Batu Split Di Rancamaya Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwa konstruksi beton adalah bagian konstruksi yang mesti ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

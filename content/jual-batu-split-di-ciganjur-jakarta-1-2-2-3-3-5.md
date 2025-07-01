@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Ciganjur Jakarta [1/2-2/3-3/5]"
-date: "2024-07-23"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Ciganjur Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sesuai dengan ukruan yang diorder bersi..."
+title: 'Jual Batu Split Di Ciganjur Jakarta [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Ciganjur Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tdk campur ukurannya sesuai dengan ukruan yang diorder
+  bersi...
 ---
 
 **Jual Batu Split Di Ciganjur Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton ialah bagian konstruksi yang patut ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

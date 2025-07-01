@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Ciledug Tangerang [1/2-2/3-3/5]"
-date: "2024-07-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Ciledug Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sesuai dg ukruan yang diorder bersih ta..."
+title: 'Jual Batu Split Di Ciledug Tangerang [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Ciledug Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya sesuai dg ukruan yang diorder bersih
+  ta...
 ---
 
 **Jual Batu Split Di Ciledug Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton yaitu bagian konstruksi yang patut ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

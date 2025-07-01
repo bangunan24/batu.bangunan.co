@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kuningan Jakarta [1/2-2/3-3/5]"
-date: "2024-07-15"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kuningan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sesuai dg ukruan yang dipesan bersih ta..."
+title: 'Jual Batu Split Di Kuningan Jakarta [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kuningan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tdk campur ukurannya sesuai dg ukruan yang dipesan bersih
+  ta...
 ---
 
 **Jual Batu Split Di Kuningan Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwa konstruksi beton merupakan bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.

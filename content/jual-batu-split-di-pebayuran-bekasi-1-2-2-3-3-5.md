@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pebayuran Bekasi [1/2-2/3-3/5]"
-date: "2024-07-27"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pebayuran Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang dipesan be..."
+title: 'Jual Batu Split Di Pebayuran Bekasi [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pebayuran Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang dipesan
+  be...
 ---
 
 **Jual Batu Split Di Pebayuran Bekasi \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton ialah komponen konstruksi yang wajib ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Gondangdia Jakarta [1/2-2/3-3/5]"
-date: "2024-07-03"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Gondangdia Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa a..."
+title: 'Jual Batu Split Di Gondangdia Jakarta [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Gondangdia Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yakni tdk campur ukurannya pas dg ukruan yang diorder bersih
+  tanpa a...
 ---
 
 **Jual Batu Split Di Gondangdia Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton adalah komponen konstruksi yang sepatutnya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

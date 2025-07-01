@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Sukatani Bekasi [1/2-2/3-3/5]"
-date: "2024-07-17"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Sukatani Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sesuai dengan ukruan yang dipesan bersih t..."
+title: 'Jual Batu Split Di Sukatani Bekasi [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Sukatani Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya sesuai dengan ukruan yang dipesan bersih
+  t...
 ---
 
 **Jual Batu Split Di Sukatani Bekasi \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwa konstruksi beton yaitu bagian konstruksi yang semestinya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

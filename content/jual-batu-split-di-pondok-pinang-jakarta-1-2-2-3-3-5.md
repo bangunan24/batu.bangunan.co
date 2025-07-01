@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pondok Pinang Jakarta [1/2-2/3-3/5]"
-date: "2024-07-08"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pondok Pinang Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya pas dengan ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Pondok Pinang Jakarta [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pondok Pinang Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yakni tdk campur ukurannya pas dengan ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Pondok Pinang Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwa konstruksi beton ialah komponen konstruksi yang patut ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu hanya sedikit pemakaian beton didalamnya.

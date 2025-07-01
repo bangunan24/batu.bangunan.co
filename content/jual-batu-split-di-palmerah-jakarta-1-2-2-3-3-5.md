@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Palmerah Jakarta [1/2-2/3-3/5]"
-date: "2024-07-23"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Palmerah Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya pas dengan ukruan yang diorder bersih tan..."
+title: 'Jual Batu Split Di Palmerah Jakarta [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Palmerah Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya pas dengan ukruan yang diorder bersih
+  tan...
 ---
 
 **Jual Batu Split Di Palmerah Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwasanya konstruksi beton ialah komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

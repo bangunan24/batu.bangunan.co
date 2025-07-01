@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Ranggamekar Bogor [1/2-2/3-3/5]"
-date: "2024-07-15"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Ranggamekar Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang diorder be..."
+title: 'Jual Batu Split Di Ranggamekar Bogor [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Ranggamekar Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang diorder
+  be...
 ---
 
 **Jual Batu Split Di Ranggamekar Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton adalah komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu ataupun kayu cuma sedikit pengaplikasian beton didalamnya.

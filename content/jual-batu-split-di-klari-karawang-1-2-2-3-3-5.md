@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Klari Karawang [1/2-2/3-3/5]"
-date: "2024-07-24"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Klari Karawang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sebagaimana dengan ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Klari Karawang [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Klari Karawang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sebagaimana dengan ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Klari Karawang \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton yaitu komponen konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu ataupun kayu hanya sedikit pengaplikasian beton didalamnya.

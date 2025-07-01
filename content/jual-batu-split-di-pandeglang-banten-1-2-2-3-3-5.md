@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pandeglang Banten [1/2-2/3-3/5]"
-date: "2024-07-21"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pandeglang Banten [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sesuai dengan ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Pandeglang Banten [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pandeglang Banten [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya sesuai dengan ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Pandeglang Banten \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton adalah komponen konstruksi yang patut ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

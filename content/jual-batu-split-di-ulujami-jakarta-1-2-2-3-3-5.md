@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Ulujami Jakarta [1/2-2/3-3/5]"
-date: "2024-07-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Ulujami Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang diorder ber..."
+title: 'Jual Batu Split Di Ulujami Jakarta [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Ulujami Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang diorder
+  ber...
 ---
 
 **Jual Batu Split Di Ulujami Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton yaitu bagian konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

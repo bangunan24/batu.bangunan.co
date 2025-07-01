@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cideng Jakarta [1/2-2/3-3/5]"
-date: "2024-07-14"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cideng Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya pas dengan ukruan yang diorder bersih t..."
+title: 'Jual Batu Split Di Cideng Jakarta [1/2-2/3-3/5]'
+date: '2025-07-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cideng Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya pas dengan ukruan yang diorder
+  bersih t...
 ---
 
 **Jual Batu Split Di Cideng Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwa konstruksi beton merupakan bagian konstruksi yang patut ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu cuma sedikit penerapan beton didalamnya.
