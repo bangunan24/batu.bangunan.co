@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Serang Baru Bekasi [1/2-2/3-3/5]"
-date: "2024-08-31"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Serang Baru Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang diorder be..."
+title: 'Jual Batu Split Di Serang Baru Bekasi [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Serang Baru Bekasi [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tdk campur ukurannya sebagaimana dg ukruan yang
+  diorder be...
 ---
 
 **Jual Batu Split Di Serang Baru Bekasi \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton merupakan bagian konstruksi yang semestinya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu cuma sedikit pemakaian beton didalamnya.

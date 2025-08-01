@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kartini Jakarta [1/2-2/3-3/5]"
-date: "2024-08-17"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kartini Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa ada..."
+title: 'Jual Batu Split Di Kartini Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kartini Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa
+  ada...
 ---
 
 **Jual Batu Split Di Kartini Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton adalah bagian konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu ataupun kayu cuma sedikit pemakaian beton didalamnya.

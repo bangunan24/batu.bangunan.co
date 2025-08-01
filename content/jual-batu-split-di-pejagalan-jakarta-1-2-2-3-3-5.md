@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pejagalan Jakarta [1/2-2/3-3/5]"
-date: "2024-08-22"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pejagalan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sesuai dengan ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Pejagalan Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pejagalan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya sesuai dengan ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Pejagalan Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton yakni bagian konstruksi yang harus ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

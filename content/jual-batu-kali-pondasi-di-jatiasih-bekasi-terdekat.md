@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Kali Pondasi Di Jatiasih Bekasi [Terdekat]"
-date: "2024-08-14"
-categories: 
-  - "harga"
-description: "Jual Batu Kali Pondasi Di Jatiasih Bekasi [Terdekat]. Untuk Anda yang berkeinginan mengorder batu pondasi ini dari kami, silakan hubungi kami lewat nomor tel..."
+title: 'Jual Batu Kali Pondasi Di Jatiasih Bekasi [Terdekat]'
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Batu Kali Pondasi Di Jatiasih Bekasi [Terdekat]. Untuk Anda yang
+  berkeinginan mengorder batu pondasi ini dari kami, silakan hubungi kami lewat
+  nomor tel...
 ---
 
 **Jual Batu Kali Pondasi Di Jatiasih Bekasi \[Terdekat\]** – Sebaik apapun kontruksi sebuah bangunan baik itu sekala kecil maupun besar tetap memerlukan pondasi. Sebab pondasi merupakan pijakan dasar yang memastikan kuat dan tidaknya sebuah bangunan berdiri. Dengan itu eksistensi pondasi pada sebuah bangunan merupakan wajib adanya tdk dapat kita hindari ketika kita berkeinginan membangun sebuah bangunan. Daya sebuah pondasi juga amat ditetapkan oleh mutu material yang digunakan dalam pembuatan pondasi tersebut. Apabila material pondasinya berupa batu kali, tentunya benar-benar diatur oleh mutu dari batu yang dipakai, begitupun lainnya seperti pasir, semen yang dipakai benar-benar menetapkan Mutu nya.

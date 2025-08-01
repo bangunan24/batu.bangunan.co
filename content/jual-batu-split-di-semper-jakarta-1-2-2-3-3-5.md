@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Semper Jakarta [1/2-2/3-3/5]"
-date: "2024-08-03"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Semper Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya pas dg ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Semper Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Semper Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya pas dg ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Semper Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton yaitu bagian konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

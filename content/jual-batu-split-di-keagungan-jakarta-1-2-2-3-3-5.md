@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Keagungan Jakarta [1/2-2/3-3/5]"
-date: "2024-08-23"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Keagungan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tidak campur ukurannya sesuai dengan ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Keagungan Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Keagungan Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tidak campur ukurannya sesuai dengan ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Keagungan Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwa konstruksi beton yaitu komponen konstruksi yang wajib ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

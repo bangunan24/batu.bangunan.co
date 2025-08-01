@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Tanah Abang Jakarta [1/2-2/3-3/5]"
-date: "2024-08-08"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Tanah Abang Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sesuai dengan ukruan yang dipesan ber..."
+title: 'Jual Batu Split Di Tanah Abang Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Tanah Abang Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tidak campur ukurannya sesuai dengan ukruan yang dipesan
+  ber...
 ---
 
 **Jual Batu Split Di Tanah Abang Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton ialah bagian konstruksi yang sepatutnya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

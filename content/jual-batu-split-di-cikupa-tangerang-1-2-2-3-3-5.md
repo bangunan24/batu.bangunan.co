@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cikupa Tangerang [1/2-2/3-3/5]"
-date: "2024-08-03"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cikupa Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tidak campur ukurannya sebagaimana dengan ukruan yang diorder be..."
+title: 'Jual Batu Split Di Cikupa Tangerang [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cikupa Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tidak campur ukurannya sebagaimana dengan ukruan yang diorder
+  be...
 ---
 
 **Jual Batu Split Di Cikupa Tangerang \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton adalah komponen konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

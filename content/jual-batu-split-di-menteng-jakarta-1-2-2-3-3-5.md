@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Menteng Jakarta [1/2-2/3-3/5]"
-date: "2024-08-19"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Menteng Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang diorder bers..."
+title: 'Jual Batu Split Di Menteng Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Menteng Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sesuai dengan ukruan yang diorder
+  bers...
 ---
 
 **Jual Batu Split Di Menteng Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton merupakan bagian konstruksi yang wajib ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu ataupun kayu hanya sedikit pengaplikasian beton didalamnya.

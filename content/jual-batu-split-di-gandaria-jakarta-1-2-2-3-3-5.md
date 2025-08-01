@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Gandaria Jakarta [1/2-2/3-3/5]"
-date: "2024-08-23"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Gandaria Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang dipesan be..."
+title: 'Jual Batu Split Di Gandaria Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Gandaria Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang dipesan
+  be...
 ---
 
 **Jual Batu Split Di Gandaria Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton ialah bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

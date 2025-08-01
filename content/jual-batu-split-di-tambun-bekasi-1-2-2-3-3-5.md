@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Tambun Bekasi [1/2-2/3-3/5]"
-date: "2024-08-26"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Tambun Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sesuai dengan ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Tambun Bekasi [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Tambun Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tdk campur ukurannya sesuai dengan ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Tambun Bekasi \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton merupakan komponen konstruksi yang harus ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

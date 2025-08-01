@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pondok Jaya Depok [1/2-2/3-3/5]"
-date: "2024-08-20"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pondok Jaya Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tdk campur ukurannya sebagaimana dengan ukruan yang diorder ber..."
+title: 'Jual Batu Split Di Pondok Jaya Depok [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pondok Jaya Depok [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tdk campur ukurannya sebagaimana dengan ukruan yang diorder
+  ber...
 ---
 
 **Jual Batu Split Di Pondok Jaya Depok \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwa konstruksi beton yakni bagian konstruksi yang mesti ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% menerapkan material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

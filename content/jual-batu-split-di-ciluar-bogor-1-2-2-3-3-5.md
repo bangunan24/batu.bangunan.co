@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Ciluar Bogor [1/2-2/3-3/5]"
-date: "2024-08-18"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Ciluar Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sebagaimana dengan ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Ciluar Bogor [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Ciluar Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tdk campur ukurannya sebagaimana dengan ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Ciluar Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwa konstruksi beton adalah komponen konstruksi yang mesti ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cipedak Jakarta [1/2-2/3-3/5]"
-date: "2024-08-02"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cipedak Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya pas dg ukruan yang dipesan bersih tanpa ad..."
+title: 'Jual Batu Split Di Cipedak Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cipedak Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya pas dg ukruan yang dipesan bersih tanpa
+  ad...
 ---
 
 **Jual Batu Split Di Cipedak Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton merupakan komponen konstruksi yang wajib ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu hanya sedikit penerapan beton didalamnya.

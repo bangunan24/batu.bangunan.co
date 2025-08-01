@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Panongan Tangerang [1/2-2/3-3/5]"
-date: "2024-08-04"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Panongan Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang diorder bersi..."
+title: 'Jual Batu Split Di Panongan Tangerang [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Panongan Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tidak campur ukurannya sesuai dg ukruan yang diorder
+  bersi...
 ---
 
 **Jual Batu Split Di Panongan Tangerang \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwa konstruksi beton yakni komponen konstruksi yang seharusnya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit penggunaan beton didalamnya.

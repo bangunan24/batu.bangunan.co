@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Tegallega Bogor [1/2-2/3-3/5]"
-date: "2024-08-28"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Tegallega Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya pas dengan ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Tegallega Bogor [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Tegallega Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya pas dengan ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Tegallega Bogor \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwa konstruksi beton yaitu komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cibodas Tangerang [1/2-2/3-3/5]"
-date: "2024-08-29"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cibodas Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang diorder b..."
+title: 'Jual Batu Split Di Cibodas Tangerang [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cibodas Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sebagaimana dg ukruan yang diorder
+  b...
 ---
 
 **Jual Batu Split Di Cibodas Tangerang \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton yakni bagian konstruksi yang patut ada pada sebuah bangunan. Sulit kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

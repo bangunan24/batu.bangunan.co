@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Megamendung Bogor [1/2-2/3-3/5]"
-date: "2024-08-24"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Megamendung Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tidak campur ukurannya pas dg ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Megamendung Bogor [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Megamendung Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tidak campur ukurannya pas dg ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Megamendung Bogor \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton yaitu komponen konstruksi yang wajib ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

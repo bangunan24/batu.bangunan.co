@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Cawang Jakarta [1/2-2/3-3/5]"
-date: "2024-08-30"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Cawang Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sebagaimana dg ukruan yang diorder bersih tan..."
+title: 'Jual Batu Split Di Cawang Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Cawang Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya ialah tdk campur ukurannya sebagaimana dg ukruan yang diorder bersih
+  tan...
 ---
 
 **Jual Batu Split Di Cawang Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton yakni bagian konstruksi yang mesti ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

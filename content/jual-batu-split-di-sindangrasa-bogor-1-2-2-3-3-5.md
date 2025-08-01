@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Sindangrasa Bogor [1/2-2/3-3/5]"
-date: "2024-08-19"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Sindangrasa Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yakni tidak campur ukurannya sesuai dg ukruan yang diorder bersih tan..."
+title: 'Jual Batu Split Di Sindangrasa Bogor [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Sindangrasa Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yakni tidak campur ukurannya sesuai dg ukruan yang diorder bersih
+  tan...
 ---
 
 **Jual Batu Split Di Sindangrasa Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwasanya konstruksi beton adalah komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

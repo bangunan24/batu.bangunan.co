@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Mekarjaya Depok [1/2-2/3-3/5]"
-date: "2024-08-06"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Mekarjaya Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sebagaimana dg ukruan yang dipesan bersih..."
+title: 'Jual Batu Split Di Mekarjaya Depok [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Mekarjaya Depok [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya sebagaimana dg ukruan yang dipesan
+  bersih...
 ---
 
 **Jual Batu Split Di Mekarjaya Depok \[1/2-2/3-3/5\]** – Sesuai yang yang kita tahu bahwa konstruksi beton yakni komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% mengaplikasikan material bambu maupun kayu cuma sedikit pengaplikasian beton didalamnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kelapa Dua Tangerang [1/2-2/3-3/5]"
-date: "2024-08-08"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kelapa Dua Tangerang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sebagaimana dg ukruan yang dipesan bers..."
+title: 'Jual Batu Split Di Kelapa Dua Tangerang [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kelapa Dua Tangerang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya sebagaimana dg ukruan yang dipesan
+  bers...
 ---
 
 **Jual Batu Split Di Kelapa Dua Tangerang \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton adalah komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu maupun kayu hanya sedikit pengaplikasian beton didalamnya.

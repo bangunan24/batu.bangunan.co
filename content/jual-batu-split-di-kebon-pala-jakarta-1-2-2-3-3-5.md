@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kebon Pala Jakarta [1/2-2/3-3/5]"
-date: "2024-08-09"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kebon Pala Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang dipesan bersih tanpa a..."
+title: 'Jual Batu Split Di Kebon Pala Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kebon Pala Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang dipesan bersih
+  tanpa a...
 ---
 
 **Jual Batu Split Di Kebon Pala Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita tau bahwa konstruksi beton adalah komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu ataupun kayu hanya sedikit penerapan beton didalamnya.

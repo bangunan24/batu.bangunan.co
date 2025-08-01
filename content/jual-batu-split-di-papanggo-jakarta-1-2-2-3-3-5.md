@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Papanggo Jakarta [1/2-2/3-3/5]"
-date: "2024-08-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Papanggo Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sebagaimana dg ukruan yang dipesan bersi..."
+title: 'Jual Batu Split Di Papanggo Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Papanggo Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya sebagaimana dg ukruan yang dipesan
+  bersi...
 ---
 
 **Jual Batu Split Di Papanggo Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton yaitu komponen konstruksi yang semestinya ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tadi hampir 100% memakai material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

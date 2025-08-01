@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pondok Bambu Jakarta [1/2-2/3-3/5]"
-date: "2024-08-02"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pondok Bambu Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya pas dengan ukruan yang diorder bersi..."
+title: 'Jual Batu Split Di Pondok Bambu Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pondok Bambu Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tidak campur ukurannya pas dengan ukruan yang diorder
+  bersi...
 ---
 
 **Jual Batu Split Di Pondok Bambu Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita ketahui bahwasanya konstruksi beton merupakan bagian konstruksi yang patut ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, rumah bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% menerapkan material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

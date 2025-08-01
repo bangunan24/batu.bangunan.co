@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kebayoran Baru Jakarta [1/2-2/3-3/5]"
-date: "2024-08-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kebayoran Baru Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sebagaimana dg ukruan yang dipesan..."
+title: 'Jual Batu Split Di Kebayoran Baru Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kebayoran Baru Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tidak campur ukurannya sebagaimana dg ukruan yang
+  dipesan...
 ---
 
 **Jual Batu Split Di Kebayoran Baru Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tau bahwa konstruksi beton yakni komponen konstruksi yang mesti ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

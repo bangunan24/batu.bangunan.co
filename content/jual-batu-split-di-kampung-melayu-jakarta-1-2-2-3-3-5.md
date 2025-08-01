@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kampung Melayu Jakarta [1/2-2/3-3/5]"
-date: "2024-08-27"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kampung Melayu Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sesuai dg ukruan yang diorder bers..."
+title: 'Jual Batu Split Di Kampung Melayu Jakarta [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kampung Melayu Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tidak campur ukurannya sesuai dg ukruan yang diorder
+  bers...
 ---
 
 **Jual Batu Split Di Kampung Melayu Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton adalah bagian konstruksi yang mesti ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% mengaplikasikan material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

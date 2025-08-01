@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Banyusari Karawang [1/2-2/3-3/5]"
-date: "2024-08-26"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Banyusari Karawang [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sebagaimana dg ukruan yang dipesan bers..."
+title: 'Jual Batu Split Di Banyusari Karawang [1/2-2/3-3/5]'
+date: '2025-08-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Banyusari Karawang [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tidak campur ukurannya sebagaimana dg ukruan yang dipesan
+  bers...
 ---
 
 **Jual Batu Split Di Banyusari Karawang \[1/2-2/3-3/5\]** – Seperti yang yang kita tau bahwa konstruksi beton merupakan komponen konstruksi yang harus ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menggunakan material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.
