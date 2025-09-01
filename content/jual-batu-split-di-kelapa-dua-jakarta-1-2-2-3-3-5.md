@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kelapa Dua Jakarta [1/2-2/3-3/5]"
-date: "2024-09-04"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kelapa Dua Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tdk campur ukurannya sesuai dg ukruan yang diorder bersih..."
+title: 'Jual Batu Split Di Kelapa Dua Jakarta [1/2-2/3-3/5]'
+date: '2025-09-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kelapa Dua Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya merupakan tdk campur ukurannya sesuai dg ukruan yang diorder
+  bersih...
 ---
 
 **Jual Batu Split Di Kelapa Dua Jakarta \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton ialah bagian konstruksi yang patut ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% menggunakan material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

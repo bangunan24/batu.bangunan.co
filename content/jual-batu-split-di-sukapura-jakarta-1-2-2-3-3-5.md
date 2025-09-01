@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Sukapura Jakarta [1/2-2/3-3/5]"
-date: "2024-09-01"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Sukapura Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya merupakan tidak campur ukurannya sebagaimana dengan ukruan yang diorde..."
+title: 'Jual Batu Split Di Sukapura Jakarta [1/2-2/3-3/5]'
+date: '2025-09-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Sukapura Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya merupakan tidak campur ukurannya sebagaimana dengan ukruan yang
+  diorde...
 ---
 
 **Jual Batu Split Di Sukapura Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton yaitu komponen konstruksi yang mesti ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% menggunakan material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

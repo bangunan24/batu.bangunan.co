@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Kebon Sirih Jakarta [1/2-2/3-3/5]"
-date: "2024-09-07"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Kebon Sirih Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Kebon Sirih Jakarta [1/2-2/3-3/5]'
+date: '2025-09-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Kebon Sirih Jakarta [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tdk campur ukurannya pas dg ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Kebon Sirih Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita tahu bahwasanya konstruksi beton ialah komponen konstruksi yang patut ada pada sebuah bangunan. Susah kita jumpai sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau rumah kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit penerapan beton didalamnya.

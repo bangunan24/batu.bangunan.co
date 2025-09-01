@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Marunda Jakarta [1/2-2/3-3/5]"
-date: "2024-09-12"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Marunda Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih ta..."
+title: 'Jual Batu Split Di Marunda Jakarta [1/2-2/3-3/5]'
+date: '2025-09-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Marunda Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tdk campur ukurannya sebagaimana dg ukruan yang dipesan bersih
+  ta...
 ---
 
 **Jual Batu Split Di Marunda Jakarta \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton yaitu bagian konstruksi yang wajib ada pada sebuah bangunan. Susah kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, tempat tinggal bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

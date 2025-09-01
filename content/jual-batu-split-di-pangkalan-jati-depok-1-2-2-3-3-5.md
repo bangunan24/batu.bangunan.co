@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Pangkalan Jati Depok [1/2-2/3-3/5]"
-date: "2024-09-13"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Pangkalan Jati Depok [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tdk campur ukurannya sebagaimana dengan ukruan yang dipesan..."
+title: 'Jual Batu Split Di Pangkalan Jati Depok [1/2-2/3-3/5]'
+date: '2025-09-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Pangkalan Jati Depok [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya adalah tdk campur ukurannya sebagaimana dengan ukruan yang
+  dipesan...
 ---
 
 **Jual Batu Split Di Pangkalan Jati Depok \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwasanya konstruksi beton yaitu komponen konstruksi yang mesti ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, tempat tinggal bambu atau tempat tinggal kayu. Karena rumah-rumah tadi hampir 100% memakai material bambu maupun kayu cuma sedikit penerapan beton didalamnya.

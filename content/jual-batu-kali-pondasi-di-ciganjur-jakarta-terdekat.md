@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Kali Pondasi Di Ciganjur Jakarta [Terdekat]"
-date: "2024-09-16"
-categories: 
-  - "harga"
-description: "Jual Batu Kali Pondasi Di Ciganjur Jakarta [Terdekat]. Untuk Anda yang ingin memesan batu pondasi ini dari kami, silakan hubungi kami lewat nomor telepon dan..."
+title: 'Jual Batu Kali Pondasi Di Ciganjur Jakarta [Terdekat]'
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jual Batu Kali Pondasi Di Ciganjur Jakarta [Terdekat]. Untuk Anda yang ingin
+  memesan batu pondasi ini dari kami, silakan hubungi kami lewat nomor telepon
+  dan...
 ---
 
 **Jual Batu Kali Pondasi Di Ciganjur Jakarta \[Terdekat\]** – Sehebat apapun kontruksi sebuah bangunan apakah itu sekala kecil maupun besar pasti membutuhkan pondasi. Sebab pondasi yakni pijakan dasar yang menetapkan kuat dan tidaknya sebuah bangunan berdiri. Dengan itu eksistensi pondasi pada sebuah bangunan yakni penting adanya tidak dapat kita hindari ketika kita mau membangun sebuah bangunan. Kekuatan sebuah pondasi juga betul-betul ditetapkan oleh mutu material yang diaplikasikan dalam pembuatan pondasi tersebut. Kalau material pondasinya berupa batu kali, tentunya sungguh-sungguh ditentukan oleh mutu dari batu yang diaplikasikan, begitupun lainnya seperti pasir, semen yang digunakan betul-betul memastikan Mutu nya.

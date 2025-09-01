@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Manggarai Jakarta [1/2-2/3-3/5]"
-date: "2024-09-10"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Manggarai Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim pastinya adalah tidak campur ukurannya sebagaimana dengan ukruan yang diorder..."
+title: 'Jual Batu Split Di Manggarai Jakarta [1/2-2/3-3/5]'
+date: '2025-09-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Manggarai Jakarta [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya adalah tidak campur ukurannya sebagaimana dengan ukruan yang
+  diorder...
 ---
 
 **Jual Batu Split Di Manggarai Jakarta \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwa konstruksi beton ialah bagian konstruksi yang mesti ada pada sebuah bangunan. Sulit kita peroleh sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Karena rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit pemakaian beton didalamnya.

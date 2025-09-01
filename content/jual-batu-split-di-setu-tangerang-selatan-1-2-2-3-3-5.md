@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Setu Tangerang Selatan [1/2-2/3-3/5]"
-date: "2024-09-05"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Setu Tangerang Selatan [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya pas dg ukruan yang diorder bersih t..."
+title: 'Jual Batu Split Di Setu Tangerang Selatan [1/2-2/3-3/5]'
+date: '2025-09-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Setu Tangerang Selatan [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya yaitu tidak campur ukurannya pas dg ukruan yang diorder bersih
+  t...
 ---
 
 **Jual Batu Split Di Setu Tangerang Selatan \[1/2-2/3-3/5\]** – Sebagaimana yang kita ketahui bahwasanya konstruksi beton ialah bagian konstruksi yang semestinya ada pada sebuah bangunan. Susah kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tersebut hampir 100% memakai material bambu maupun kayu hanya sedikit penggunaan beton didalamnya.

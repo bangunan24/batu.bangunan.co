@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Panaragan Bogor [1/2-2/3-3/5]"
-date: "2024-09-14"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Panaragan Bogor [1/2-2/3-3/5]. Batu split yang kami kirim pastinya yaitu tidak campur ukurannya sesuai dg ukruan yang diorder bersih tanpa..."
+title: 'Jual Batu Split Di Panaragan Bogor [1/2-2/3-3/5]'
+date: '2025-09-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Panaragan Bogor [1/2-2/3-3/5]. Batu split yang kami kirim
+  pastinya yaitu tidak campur ukurannya sesuai dg ukruan yang diorder bersih
+  tanpa...
 ---
 
 **Jual Batu Split Di Panaragan Bogor \[1/2-2/3-3/5\]** – Seperti yang yang kita tahu bahwasanya konstruksi beton yaitu komponen konstruksi yang seharusnya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti rumah bambu, rumah bambu atau tempat tinggal kayu. Sebab rumah-rumah tadi hampir 100% menerapkan material bambu ataupun kayu hanya sedikit penggunaan beton didalamnya.

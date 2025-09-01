@@ -1,9 +1,12 @@
 ---
-title: "Jual Batu Split Di Mustika Jaya Bekasi [1/2-2/3-3/5]"
-date: "2024-09-01"
-categories: 
-  - "tempat"
-description: "Jual Batu Split Di Mustika Jaya Bekasi [1/2-2/3-3/5]. Batu split yang kami kirim pastinya ialah tdk campur ukurannya sesuai dg ukruan yang dipesan bersih tan..."
+title: 'Jual Batu Split Di Mustika Jaya Bekasi [1/2-2/3-3/5]'
+date: '2025-09-01'
+categories:
+  - tempat
+description: >-
+  Jual Batu Split Di Mustika Jaya Bekasi [1/2-2/3-3/5]. Batu split yang kami
+  kirim pastinya ialah tdk campur ukurannya sesuai dg ukruan yang dipesan bersih
+  tan...
 ---
 
 **Jual Batu Split Di Mustika Jaya Bekasi \[1/2-2/3-3/5\]** – Sesuai yang yang kita ketahui bahwa konstruksi beton yakni bagian konstruksi yang semestinya ada pada sebuah bangunan. Sulit kita dapatkan sebuah bangunan tanpa melibatkan konstruksi beton di dalamnya. Terkecuali rumah-rumah di perkampungan seperti tempat tinggal panggung, rumah bambu atau rumah kayu. Sebab rumah-rumah tersebut hampir 100% mengaplikasikan material bambu ataupun kayu cuma sedikit pemakaian beton didalamnya.
