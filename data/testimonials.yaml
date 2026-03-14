@@ -1,6 +1,6 @@
 testimonials:
   - avatar: /images/admin/avatar1.png
-    name: Budi
+    name: Eko
     message: >-
       Saya menggunakan batu kali dari batu.bangunan.co untuk konstruksi rumah
       saya, dan hasilnya luar biasa. Kualitas batu sangat baik dan proses
@@ -10,44 +10,50 @@ testimonials:
       kami.
     rating: 4
   - avatar: /images/admin/avatar2.png
-    name: Nina
+    name: Dewi
     message: >-
-      batu.bangunan.co memberikan rekomendasi batu yang tepat untuk proyek
-      konstruksi rumah saya. Batu yang saya dapatkan prima dan sesuai dengan
-      kebutuhan saya.
-    response: Terima kasih banyak atas ulasan Anda. Kami senang dapat membantu Anda.
+      Saya sangat terbantu oleh batu.bangunan.co dalam memilih jenis batu yang
+      cocok untuk proyek saya. Batu yang saya dapatkan berkualitas dan sesuai
+      dengan kebutuhan saya.
+    response: >-
+      Kami sangat menghargai ulasan Anda! Senang mendengar Anda puas dengan
+      produk kami.
     rating: 5
   - avatar: /images/admin/avatar3.png
-    name: Samsul
+    name: Joko
     message: >-
       Batu dari batu.bangunan.co sangat cocok untuk proyek perumahan saya.
-      Pembelian dan pengiriman tepat waktu dan bisa bayar COD.
+      Proses pembelian dan pengirimannya sangat cepat dan tersedia pilihan
+      pembayaran COD.
     response: >-
       Terima kasih! Kami berkomitmen menyediakan batu berkualitas dengan layanan
       terbaik.
     rating: 4
   - avatar: /images/admin/avatar4.png
-    name: Rudi
+    name: Samsul
     message: >-
-      Saya sangat puas dengan batu pondasi dari batu.bangunan.co. Batu ini
-      sangat berkualitas dan ideal untuk konstruksi bangunan saya.
+      Saya menggunakan batu pondasi dari batu.bangunan.co dan hasilnya luar
+      biasa. Kualitasnya sangat baik dan sesuai untuk proyek konstruksi bangunan
+      saya.
     response: >-
-      Terima kasih! Kami senang dapat menyediakan batu pondasi berkualitas untuk
-      proyek Anda.
+      Kami sangat menghargai kepercayaan Anda. Senang mendengar Anda puas dengan
+      produk kami!
     rating: 5
   - avatar: /images/admin/avatar5.png
-    name: Fitri
+    name: Siti
     message: >-
-      Saya sangat puas dengan pelayanan batu.bangunan.co. Material batu yang
-      saya beli bermutu tinggi dan sesuai dengan ekspektasi saya.
-    response: Terima kasih atas ulasannya! Kami sangat menghargai kepercayaan Anda.
+      Pelayanan batu.bangunan.co sangat memuaskan. Batu yang saya pesan pas
+      dengan kebutuhan saya dan tepat seperti yang saya inginkan.
+    response: >-
+      Terima kasih! Kami senang dapat membantu mewujudkan proyek Anda dengan
+      batu berkualitas.
     rating: 4
   - avatar: /images/admin/avatar6.png
-    name: Dedi
+    name: Eko
     message: >-
-      Batu dari batu.bangunan.co sangat sesuai dengan kebutuhan proyek renovasi
-      rumah saya. Pengiriman batu sangat cepat dan aman.
+      Saya memesan batu dari batu.bangunan.co dan hasilnya luar biasa untuk
+      proyek renovasi rumah saya. Proses pengirimannya cepat dan aman.
     response: >-
-      Kami senang mendengar bahwa Anda puas dengan produk batu kami. Terima
-      kasih atas ulasannya!
+      Terima kasih atas ulasan positifnya! Kami senang dapat membantu proyek
+      Anda.
     rating: 5
