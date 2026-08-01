@@ -1,6 +1,6 @@
 ---
 title: 'Jual Batu Split Di Serang Baru Bekasi [1/2-2/3-3/5]'
-date: '2025-08-01'
+date: '2026-08-01'
 categories:
   - tempat
 description: >-
