@@ -1,6 +1,6 @@
 ---
 title: 'Jual Batu Split Di Paledang Bogor [1/2-2/3-3/5]'
-date: '2025-09-01'
+date: '2026-09-01'
 categories:
   - tempat
 description: >-
